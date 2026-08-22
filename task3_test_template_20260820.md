@@ -1,312 +1,318 @@
-<h1>普京称俄军加大对乌企业打击</h1>
-<p><strong>更新时间：</strong>2026年08月23日 03时09分48秒 (UTC+8)</p>
-<p>栏目：AI Builders Digest　主题：普京称俄军加大对乌企业打击</p>
+<h1>人工智能进课堂，如何学得更好</h1>
+<p><strong>更新时间：</strong>2026年08月23日 07时49分50秒 (UTC+8)</p>
+<p>栏目：AI Builders Digest　主题：人工智能进课堂，如何学得更好</p>
 <h2>摘要</h2>
-<p>当地时间22日，俄罗斯总统普京表示，乌克兰武装部队在过去40天里持续使用导弹和无人机对俄罗斯发动攻击，企图借此击败俄罗斯，但这“不过是一场冒险”。他称，乌军的打击并未造成任何实质性转折。 普京还称，作为对乌军打击俄罗斯境内民用设施的回应，俄军加大了对乌克兰企业的打击，且俄方的报复性打击 “更具破坏性”。(总台记者 郝薇)</p>
+<p>人工智能进课堂，如何学得更好(解码“十五五”专项规划) 中小学校园里，学习人工智能校本课程；大学里，修读人工智能公共基础课……如今，人工智能相关课程已进入许多学生的课程表。 《教育发展“十五五”规划》提出，“推进人工智能全学段教育，提升学生人工智能素养，增强提出问题、解决问题的能力。” 各学段的人工智能教育，学什么、怎么教、如何教好？记者进行了采访。各学段 学什么 多地推出相关文件，明确课时要求 4月，教育部等5部门印发《“人工智能+教</p>
 <h2>正文</h2>
-<p>当地时间22日，俄罗斯总统普京表示，乌克兰武装部队在过去40天里持续使用导弹和无人机对俄罗斯发动攻击，企图借此击败俄罗斯，但这“不过是一场冒险”。</p>
-<p>他称，乌军的打击并未造成任何实质性转折。</p>
-<p>普京还称，作为对乌军打击俄罗斯境内民用设施的回应，俄军加大了对乌克兰企业的打击，且俄方的报复性打击 “更具破坏性”。</p>
-<p>(总台记者 郝薇)</p>
+<p>人工智能进课堂，如何学得更好(解码“十五五”专项规划) 中小学校园里，学习人工智能校本课程；大学里，修读人工智能公共基础课……如今，人工智能相关课程已进入许多学生的课程表。</p>
+<p>《教育发展“十五五”规划》提出，“推进人工智能全学段教育，提升学生人工智能素养，增强提出问题、解决问题的能力。</p>
+<p>” 各学段的人工智能教育，学什么、怎么教、如何教好？</p>
+<p>记者进行了采访。</p>
+<p>各学段 学什么 多地推出相关文件，明确课时要求 4月，教育部等5部门印发《“人工智能+教育”行动计划》(以下简称“行动计划”)，对推动人工智能人才培养与素养提升作出要求。</p>
+<p>教育部科学技术与信息化司有关负责同志表示，要坚持分类施策、分层推进，针对各学段明确目标任务。</p>
+<p>基础教育阶段，要加快普及面向中小学生的人工智能教育。</p>
+<p>“我想把学校建在云朵上，有彩虹滑梯，每间教室都不一样……”深圳大学附属教育集团外国语小学课堂上，学生正描述心中的未来学校，智能体瞬间绘出生动图画。</p>
+<p>在这里，同学们每月至少能上一节人工智能课。</p>
+<p>如今，多地出台地方课程纲要、教学指导纲要等，明确课时要求。</p>
 <h2>内链</h2>
-<h3>20260823-1gwgjxif</h3>
-<p>福建启动防台风四级应急响应 平潭所有客渡船停航<br><br>来源：<a href="https://github.com/miot0t-create/shishang202608/blob/main/20260823-1gwgjxif.md">https://github.com/miot0t-create/shishang202608/blob/main/20260823-1gwgjxif.md</a></p>
-<h3>20260823-abzf8mg2</h3>
-<p>学者蒙曼：湖南沅陵是扣住大西南的“文化纽扣”<br><br>来源：<a href="https://github.com/b6y02faw-maker/youxi202608/blob/main/20260823-abzf8mg2.md">https://github.com/b6y02faw-maker/youxi202608/blob/main/20260823-abzf8mg2.md</a></p>
-<h3>20260823-rle1g105</h3>
-<p>第二十一届宋庆龄少年儿童发明奖开放日在北京举办<br><br>来源：<a href="https://github.com/lindsayawren-sys/20260718_02/blob/main/20260823-rle1g105.md">https://github.com/lindsayawren-sys/20260718_02/blob/main/20260823-rle1g105.md</a></p>
-<h3>20260823-54jthspo</h3>
-<p>普京称俄军加大对乌企业打击<br><br>来源：<a href="https://github.com/9w79h87-cmd/ziran202608/blob/main/20260823-54jthspo.md">https://github.com/9w79h87-cmd/ziran202608/blob/main/20260823-54jthspo.md</a></p>
-<h3>20260823-k2ft2coa</h3>
-<p>云港台近40名选手在云南抚仙湖扬帆竞速<br><br>来源：<a href="https://github.com/ero9esx-creator/meishi202608/blob/main/20260823-k2ft2coa.md">https://github.com/ero9esx-creator/meishi202608/blob/main/20260823-k2ft2coa.md</a></p>
-<h3>20260823-xj5jj8ps</h3>
-<p>2026科学智能大会在北京成功举办 为全球合作提供“中国方案”<br><br>来源：<a href="https://github.com/mikaylaryleeeschkq9257-dot/xinwen202608/blob/main/20260823-xj5jj8ps.md">https://github.com/mikaylaryleeeschkq9257-dot/xinwen202608/blob/main/20260823-xj5jj8ps.md</a></p>
-<h3>20260823-8lq4xgxq</h3>
-<p>人形机器人AstraTennis 时刻：银河通用的263秒全自主决策<br><br>来源：<a href="https://github.com/b6y02faw-maker/fangchan202608/blob/main/20260823-8lq4xgxq.md">https://github.com/b6y02faw-maker/fangchan202608/blob/main/20260823-8lq4xgxq.md</a></p>
-<h3>20260823-la0aa3q4</h3>
-<p>2026年度电影总票房超270亿！暑期档成绩亮眼刷新两项纪录<br><br>来源：<a href="https://github.com/kendalljuliettedvcyso3265-web/shenghuo202608/blob/main/20260823-la0aa3q4.md">https://github.com/kendalljuliettedvcyso3265-web/shenghuo202608/blob/main/20260823-la0aa3q4.md</a></p>
-<h3>20260823-2poq8u7i</h3>
-<p>中国队击败新西兰队 晋级U18男篮亚洲杯决赛<br><br>来源：<a href="https://github.com/9w79h87-cmd/jiankang202608/blob/main/20260823-2poq8u7i.md">https://github.com/9w79h87-cmd/jiankang202608/blob/main/20260823-2poq8u7i.md</a></p>
-<h3>20260823-ew4cut7g</h3>
-<p>黄金有罪？笑话！<br><br>来源：<a href="https://github.com/dmwke4-ops/xinwen202608/blob/main/20260823-ew4cut7g.md">https://github.com/dmwke4-ops/xinwen202608/blob/main/20260823-ew4cut7g.md</a></p>
-<h3>20260811-788r54o8</h3>
-<p>关灯看手机伤眼不可逆 三个方法降低伤害→<br><br>来源：<a href="https://github.com/nadialylaouliba3944-blip/xinwen202608/blob/main/20260811-788r54o8.md">https://github.com/nadialylaouliba3944-blip/xinwen202608/blob/main/20260811-788r54o8.md</a></p>
-<h3>20260813-z8krvv5i</h3>
-<p>以防长称土耳其意图在叙基地开展危及以国家安全的活动<br><br>来源：<a href="https://github.com/raeganazariahqswbdr1627-cpu/caodi202608/blob/main/20260813-z8krvv5i.md">https://github.com/raeganazariahqswbdr1627-cpu/caodi202608/blob/main/20260813-z8krvv5i.md</a></p>
-<h3>20260818-a61u9kyz</h3>
-<p>中国队击败新西兰队 晋级U18男篮亚洲杯决赛<br><br>来源：<a href="https://github.com/raeganazariahqswbdr1627-cpu/shenghuo202608/blob/main/20260818-a61u9kyz.md">https://github.com/raeganazariahqswbdr1627-cpu/shenghuo202608/blob/main/20260818-a61u9kyz.md</a></p>
-<h3>20260821-gww7t6em</h3>
-<p>（经济观察）算力也能“存”和“买” 中国探索“算力银行”“算力超市”<br><br>来源：<a href="https://github.com/raeganazariahqswbdr1627-cpu/yinyue202608/blob/main/20260821-gww7t6em.md">https://github.com/raeganazariahqswbdr1627-cpu/yinyue202608/blob/main/20260821-gww7t6em.md</a></p>
-<h3>20260802_96tnm</h3>
-<p>2026中国社区乒乓球联赛全国首站开赛<br><br>来源：<a href="https://github.com/ramonaviviansbkhfb9905-create/keji202608/blob/main/20260802_96tnm.md">https://github.com/ramonaviviansbkhfb9905-create/keji202608/blob/main/20260802_96tnm.md</a></p>
-<h3>20260808-5lney15l</h3>
-<p>福建启动防台风四级应急响应 平潭所有客渡船停航<br><br>来源：<a href="https://github.com/ramonaviviansbkhfb9905-create/xinwen202608/blob/main/20260808-5lney15l.md">https://github.com/ramonaviviansbkhfb9905-create/xinwen202608/blob/main/20260808-5lney15l.md</a></p>
-<h3>20260812-nprj0thy</h3>
-<p>美官员：约40艘油轮21日晚通过霍尔木兹海峡<br><br>来源：<a href="https://github.com/stellakhaleesikpzujq5409-blip/caodi202608/blob/main/20260812-nprj0thy.md">https://github.com/stellakhaleesikpzujq5409-blip/caodi202608/blob/main/20260812-nprj0thy.md</a></p>
-<h3>20260821-v852xtvq</h3>
-<p>世界人形机器人运动会400米田径预赛：天工机器人39.7秒第一<br><br>来源：<a href="https://github.com/stellakhaleesikpzujq5409-blip/shenghuo202608/blob/main/20260821-v852xtvq.md">https://github.com/stellakhaleesikpzujq5409-blip/shenghuo202608/blob/main/20260821-v852xtvq.md</a></p>
-<h3>20260811-f6v5rmy8</h3>
-<p>云港台近40名选手在云南抚仙湖扬帆竞速<br><br>来源：<a href="https://github.com/stellakhaleesikpzujq5409-blip/ziran202608/blob/main/20260811-f6v5rmy8.md">https://github.com/stellakhaleesikpzujq5409-blip/ziran202608/blob/main/20260811-f6v5rmy8.md</a></p>
-<h3>20260815-1svxfpzy</h3>
-<p>肺癌全程个案管理实践指南发布 破解“出院就脱管”困境<br><br>来源：<a href="https://github.com/theahayleendnoqd6760-ux/keji202608/blob/main/20260815-1svxfpzy.md">https://github.com/theahayleendnoqd6760-ux/keji202608/blob/main/20260815-1svxfpzy.md</a></p>
-<h3>20260819-7lswobkf</h3>
-<p>2026年中国贵阳亚洲青年攀岩锦标赛 中国队包揽U17女子攀石前三<br><br>来源：<a href="https://github.com/theahayleendnoqd6760-ux/xinwen202608/blob/main/20260819-7lswobkf.md">https://github.com/theahayleendnoqd6760-ux/xinwen202608/blob/main/20260819-7lswobkf.md</a></p>
-<h3>20260802_r5tfu</h3>
-<p>2026年度电影总票房超270亿！暑期档成绩亮眼刷新两项纪录<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/caodi202607/blob/main/20260802_r5tfu.md">https://github.com/ticeilohoiyoh-afk/caodi202607/blob/main/20260802_r5tfu.md</a></p>
-<h3>1704_167</h3>
-<p>爱知·名古屋亚运会火炬传递启动<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/shenghuo202607/blob/main/1704_167.md">https://github.com/ticeilohoiyoh-afk/shenghuo202607/blob/main/1704_167.md</a></p>
-<h3>20260809-161okot3</h3>
-<p>2026年度电影总票房超270亿！暑期档成绩亮眼刷新两项纪录<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/yinyue202607/blob/main/20260809-161okot3.md">https://github.com/ticeilohoiyoh-afk/yinyue202607/blob/main/20260809-161okot3.md</a></p>
-<h3>20260810-18c3akja</h3>
-<p>受台风“紫檀”影响 国铁广州局调整部分列车开行方案<br><br>来源：<a href="https://github.com/9w79h87-cmd/caijing202608/blob/main/20260810-18c3akja.md">https://github.com/9w79h87-cmd/caijing202608/blob/main/20260810-18c3akja.md</a></p>
-<h3>20260820-8h13sien</h3>
-<p>真金白银投向群众所需，这场发布会讲清“投资于人”<br><br>来源：<a href="https://github.com/9w79h87-cmd/dianying202608/blob/main/20260820-8h13sien.md">https://github.com/9w79h87-cmd/dianying202608/blob/main/20260820-8h13sien.md</a></p>
-<h3>20260811-u5hoow1o</h3>
-<p>中国队击败新西兰队 晋级U18男篮亚洲杯决赛<br><br>来源：<a href="https://github.com/9w79h87-cmd/jiankang202608/blob/main/20260811-u5hoow1o.md">https://github.com/9w79h87-cmd/jiankang202608/blob/main/20260811-u5hoow1o.md</a></p>
-<h3>20260821-pmngfo53</h3>
-<p>加拿大要求卡车关税豁免，致使贸易谈判陷入危机<br><br>来源：<a href="https://github.com/9w79h87-cmd/keji202608/blob/main/20260821-pmngfo53.md">https://github.com/9w79h87-cmd/keji202608/blob/main/20260821-pmngfo53.md</a></p>
-<h3>20260813-0qgctgph</h3>
-<p>哈尔滨一高校新生报到礼盒“冰”意十足<br><br>来源：<a href="https://github.com/9w79h87-cmd/qiche202608/blob/main/20260813-0qgctgph.md">https://github.com/9w79h87-cmd/qiche202608/blob/main/20260813-0qgctgph.md</a></p>
-<h3>20260822-lt75hpvi</h3>
-<p>2026年中国贵阳亚洲青年攀岩锦标赛 中国队包揽U17女子攀石前三<br><br>来源：<a href="https://github.com/9w79h87-cmd/shishang202608/blob/main/20260822-lt75hpvi.md">https://github.com/9w79h87-cmd/shishang202608/blob/main/20260822-lt75hpvi.md</a></p>
+<h3>20260823-0fbfjqam</h3>
+<p>故宫出版社新书讲述18世纪西方人视角下的东西文化交流<br><br>来源：<a href="https://github.com/dmwke4-ops/dianying202608/blob/main/20260823-0fbfjqam.md">https://github.com/dmwke4-ops/dianying202608/blob/main/20260823-0fbfjqam.md</a></p>
+<h3>20260823-d2kxdm2p</h3>
+<p>叙利亚谴责以色列袭击“严重侵犯叙主权”<br><br>来源：<a href="https://github.com/malaysiamileyetmynx3953-sketch/yinyue202608/blob/main/20260823-d2kxdm2p.md">https://github.com/malaysiamileyetmynx3953-sketch/yinyue202608/blob/main/20260823-d2kxdm2p.md</a></p>
+<h3>20260823-svq491ne</h3>
+<p>黑龙江省工商联代表团赴港澳考察对接交流<br><br>来源：<a href="https://github.com/annikaoakleighzinjiu1817-prog/shenghuo202608/blob/main/20260823-svq491ne.md">https://github.com/annikaoakleighzinjiu1817-prog/shenghuo202608/blob/main/20260823-svq491ne.md</a></p>
+<h3>20260823-4ogvjvp4</h3>
+<p>云港台近40名选手在云南抚仙湖扬帆竞速<br><br>来源：<a href="https://github.com/joannaaarnamjvstl1553-ship-it/caodi202608/blob/main/20260823-4ogvjvp4.md">https://github.com/joannaaarnamjvstl1553-ship-it/caodi202608/blob/main/20260823-4ogvjvp4.md</a></p>
+<h3>20260823-jk6c6g8c</h3>
+<p>叙利亚谴责以色列袭击“严重侵犯叙主权”<br><br>来源：<a href="https://github.com/ramonaviviansbkhfb9905-create/yinyue202608/blob/main/20260823-jk6c6g8c.md">https://github.com/ramonaviviansbkhfb9905-create/yinyue202608/blob/main/20260823-jk6c6g8c.md</a></p>
+<h3>20260823-wryzp34m</h3>
+<p>上海野生动物园大熊猫龙凤胎姐弟迎一周岁<br><br>来源：<a href="https://github.com/bernettcoia/20260718_08/blob/main/20260823-wryzp34m.md">https://github.com/bernettcoia/20260718_08/blob/main/20260823-wryzp34m.md</a></p>
+<h3>20260823-c832deyp</h3>
+<p>粤西沿海风浪加剧 湛江边检转移8名遇险船员<br><br>来源：<a href="https://github.com/linhh234/20260718_13/blob/main/20260823-c832deyp.md">https://github.com/linhh234/20260718_13/blob/main/20260823-c832deyp.md</a></p>
+<h3>20260823-ohxdlmfp</h3>
+<p>日本本州岛5.8级地震已致多人受伤<br><br>来源：<a href="https://github.com/adleycatalinawxxnqj0188-byte/xinwen202608/blob/main/20260823-ohxdlmfp.md">https://github.com/adleycatalinawxxnqj0188-byte/xinwen202608/blob/main/20260823-ohxdlmfp.md</a></p>
+<h3>20260823-2wxlkn1y</h3>
+<p>加拿大宣布9月8日起对美国商品征收报复性关税<br><br>来源：<a href="https://github.com/hevwybsv-art/ziran202607/blob/main/20260823-2wxlkn1y.md">https://github.com/hevwybsv-art/ziran202607/blob/main/20260823-2wxlkn1y.md</a></p>
+<h3>20260823-g68x8esa</h3>
+<p>（经济观察）算力也能“存”和“买” 中国探索“算力银行”“算力超市”<br><br>来源：<a href="https://github.com/raeganazariahqswbdr1627-cpu/caodi202608/blob/main/20260823-g68x8esa.md">https://github.com/raeganazariahqswbdr1627-cpu/caodi202608/blob/main/20260823-g68x8esa.md</a></p>
+<h3>20260821-5sc9zwb9</h3>
+<p>普京称俄军加大对乌企业打击<br><br>来源：<a href="https://github.com/nadialylaouliba3944-blip/ziran202608/blob/main/20260821-5sc9zwb9.md">https://github.com/nadialylaouliba3944-blip/ziran202608/blob/main/20260821-5sc9zwb9.md</a></p>
+<h3>0514_890</h3>
+<p>加拿大宣布对美国反制措施 下月将对200亿美元商品征报复性关税<br><br>来源：<a href="https://github.com/raeganazariahqswbdr1627-cpu/shenghuo202608/blob/main/0514_890.md">https://github.com/raeganazariahqswbdr1627-cpu/shenghuo202608/blob/main/0514_890.md</a></p>
+<h3>20260803_zi2ef</h3>
+<p>云港台近40名选手在云南抚仙湖扬帆竞速<br><br>来源：<a href="https://github.com/raeganazariahqswbdr1627-cpu/yinyue202608/blob/main/20260803_zi2ef.md">https://github.com/raeganazariahqswbdr1627-cpu/yinyue202608/blob/main/20260803_zi2ef.md</a></p>
+<h3>20260808-otb7n8v6</h3>
+<p>2026羽毛球世锦赛：中国组合梁伟铿/王昶挺进男双决赛<br><br>来源：<a href="https://github.com/ramonaviviansbkhfb9905-create/guangming202608/blob/main/20260808-otb7n8v6.md">https://github.com/ramonaviviansbkhfb9905-create/guangming202608/blob/main/20260808-otb7n8v6.md</a></p>
+<h3>20260811-8f1vyuzi</h3>
+<p>爱知·名古屋亚运会火炬传递启动<br><br>来源：<a href="https://github.com/ramonaviviansbkhfb9905-create/wenhua202608/blob/main/20260811-8f1vyuzi.md">https://github.com/ramonaviviansbkhfb9905-create/wenhua202608/blob/main/20260811-8f1vyuzi.md</a></p>
+<h3>20260813-sksla22m</h3>
+<p>“赛考斯”抵达北京：美中两国可以携手建设更加美好的世界<br><br>来源：<a href="https://github.com/ramonaviviansbkhfb9905-create/ziran202608/blob/main/20260813-sksla22m.md">https://github.com/ramonaviviansbkhfb9905-create/ziran202608/blob/main/20260813-sksla22m.md</a></p>
+<h3>20260822-f3l53syq</h3>
+<p>（经济观察）算力也能“存”和“买” 中国探索“算力银行”“算力超市”<br><br>来源：<a href="https://github.com/stellakhaleesikpzujq5409-blip/keji202608/blob/main/20260822-f3l53syq.md">https://github.com/stellakhaleesikpzujq5409-blip/keji202608/blob/main/20260822-f3l53syq.md</a></p>
+<h3>20260811-7vmqmz9v</h3>
+<p>泡泡玛特亮相台湾秋季旅展 LABUBU、“星星人”圈粉青年<br><br>来源：<a href="https://github.com/stellakhaleesikpzujq5409-blip/yinyue202608/blob/main/20260811-7vmqmz9v.md">https://github.com/stellakhaleesikpzujq5409-blip/yinyue202608/blob/main/20260811-7vmqmz9v.md</a></p>
+<h3>20260816-9fnrmimx</h3>
+<p>美官员：约40艘油轮21日晚通过霍尔木兹海峡<br><br>来源：<a href="https://github.com/theahayleendnoqd6760-ux/guangming202608/blob/main/20260816-9fnrmimx.md">https://github.com/theahayleendnoqd6760-ux/guangming202608/blob/main/20260816-9fnrmimx.md</a></p>
+<h3>20260819-f9ofo95w</h3>
+<p>演员李昀锐与机器人百米“飞人”大战 五秒后被反超<br><br>来源：<a href="https://github.com/theahayleendnoqd6760-ux/wenhua202608/blob/main/20260819-f9ofo95w.md">https://github.com/theahayleendnoqd6760-ux/wenhua202608/blob/main/20260819-f9ofo95w.md</a></p>
+<h3>20260822-0mpa0qxc</h3>
+<p>2026赛季中乙联赛：山西战平兰州进入冲甲组<br><br>来源：<a href="https://github.com/theahayleendnoqd6760-ux/ziran202608/blob/main/20260822-0mpa0qxc.md">https://github.com/theahayleendnoqd6760-ux/ziran202608/blob/main/20260822-0mpa0qxc.md</a></p>
+<h3>20260806-esp2zpjh</h3>
+<p>泡泡玛特亮相台湾秋季旅展 LABUBU、“星星人”圈粉青年<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/guangming202607/blob/main/20260806-esp2zpjh.md">https://github.com/ticeilohoiyoh-afk/guangming202607/blob/main/20260806-esp2zpjh.md</a></p>
+<h3>1816_169</h3>
+<p>AI重塑创业单元 重庆“一人公司”如何叩响“未来之门”<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/yinyue202607/blob/main/1816_169.md">https://github.com/ticeilohoiyoh-afk/yinyue202607/blob/main/1816_169.md</a></p>
+<h3>20260810-ibw14df1</h3>
+<p>人形机器人AstraTennis 时刻：银河通用的263秒全自主决策<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/ziran202607/blob/main/20260810-ibw14df1.md">https://github.com/ticeilohoiyoh-afk/ziran202607/blob/main/20260810-ibw14df1.md</a></p>
+<h3>20260822-n3oypepp</h3>
+<p>黑龙江省工商联代表团赴港澳考察对接交流<br><br>来源：<a href="https://github.com/9w79h87-cmd/caodi202608/blob/main/20260822-n3oypepp.md">https://github.com/9w79h87-cmd/caodi202608/blob/main/20260822-n3oypepp.md</a></p>
+<h3>20260813-r5aexfsk</h3>
+<p>2026年度电影总票房超270亿！暑期档成绩亮眼刷新两项纪录<br><br>来源：<a href="https://github.com/9w79h87-cmd/guangming202608/blob/main/20260813-r5aexfsk.md">https://github.com/9w79h87-cmd/guangming202608/blob/main/20260813-r5aexfsk.md</a></p>
+<h3>0514_167</h3>
+<p>2026科学智能大会在北京成功举办 为全球合作提供“中国方案”<br><br>来源：<a href="https://github.com/9w79h87-cmd/keji202608/blob/main/0514_167.md">https://github.com/9w79h87-cmd/keji202608/blob/main/0514_167.md</a></p>
+<h3>20260814-11g7gov0</h3>
+<p>日本本州岛5.8级地震已致多人受伤<br><br>来源：<a href="https://github.com/9w79h87-cmd/meishi202608/blob/main/20260814-11g7gov0.md">https://github.com/9w79h87-cmd/meishi202608/blob/main/20260814-11g7gov0.md</a></p>
+<h3>0516_266</h3>
+<p>人工智能进课堂，如何学得更好<br><br>来源：<a href="https://github.com/9w79h87-cmd/shishang202608/blob/main/0516_266.md">https://github.com/9w79h87-cmd/shishang202608/blob/main/0516_266.md</a></p>
+<h3>20260814-4plgxkzc</h3>
+<p>演员李昀锐与机器人百米“飞人”大战 五秒后被反超<br><br>来源：<a href="https://github.com/9w79h87-cmd/wenhua202608/blob/main/20260814-4plgxkzc.md">https://github.com/9w79h87-cmd/wenhua202608/blob/main/20260814-4plgxkzc.md</a></p>
 <h2>外链</h2>
-<br><br><h3>多元业态升级！“电影+”延伸光影消费链条</h3><br>
-<p>2026年度电影总票房超270亿！暑期档成绩亮眼刷新两项纪录<br><br> | 来源：<a>http://yjee.com.cn/index/1237111.html</a></p><br><br>
-<br><br><h3>福建启动防台风四级应急响应 平潭所有客渡船停航</h3><br>
-<p>真金白银投向群众所需，这场发布会讲清“投资于人”<br><br> | 来源：<a>http://www.cnmedsim.org/index/9904371.html</a></p><br><br>
-<br><br><h3>宁夏长城非遗展览馆试运营</h3><br>
-<p>粤西沿海风浪加剧 湛江边检转移8名遇险船员<br><br> | 来源：<a>http://puningtech.com/index/4327188.html</a></p><br><br>
-<br><br><h3>以防长称土耳其意图在叙基地开展危及以国家安全的活动</h3><br>
-<p>宁夏长城非遗展览馆试运营<br><br> | 来源：<a>http://www.sh-mingtai.com/index/5638500.html</a></p><br><br>
-<br><br><h3>2026年中国贵阳亚洲青年攀岩锦标赛 中国队包揽U17女子攀石前三</h3><br>
-<p>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会<br><br> | 来源：<a>http://www.hydromax.com.cn/index/5892709.html</a></p><br><br>
-<br><br><h3>宁夏长城非遗展览馆试运营</h3><br>
-<p>普京称俄军加大对乌企业打击<br><br> | 来源：<a>http://www.trend-precision.com/index/8725261.html</a></p><br><br>
+<br><br><h3>2026赛季中乙联赛：山西战平兰州进入冲甲组</h3><br>
+<p>演员李昀锐与机器人百米“飞人”大战 五秒后被反超<br><br> | 来源：<a>http://www.materialhandling.cn/index/4078172.html</a></p><br><br>
+<br><br><h3>黑龙江省工商联代表团赴港澳考察对接交流</h3><br>
+<p>以防长称土耳其意图在叙基地开展危及以国家安全的活动<br><br> | 来源：<a>http://hydromax.com.cn/index/6545054.html</a></p><br><br>
+<br><br><h3>演员李昀锐与机器人百米“飞人”大战 五秒后被反超</h3><br>
+<p>以防长称土耳其意图在叙基地开展危及以国家安全的活动<br><br> | 来源：<a>http://ol.nju-ys.com/index/8173954.html</a></p><br><br>
+<br><br><h3>加拿大要求卡车关税豁免，致使贸易谈判陷入危机</h3><br>
+<p>演员李昀锐与机器人百米“飞人”大战 五秒后被反超<br><br> | 来源：<a>http://hypher.com.cn/index/5365797.html</a></p><br><br>
+<br><br><h3>爱知·名古屋亚运会火炬传递启动</h3><br>
+<p>黄金有罪？笑话！<br><br> | 来源：<a>http://www.fsyongbo.com/index/7801094.html</a></p><br><br>
+<br><br><h3>叙利亚谴责以色列袭击“严重侵犯叙主权”</h3><br>
+<p>爱知·名古屋亚运会火炬传递启动<br><br> | 来源：<a>http://www.shmnif.cn/index/9992808.html</a></p><br><br>
+<br><br><h3>黑龙江省工商联代表团赴港澳考察对接交流</h3><br>
+<p>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会<br><br> | 来源：<a>http://www.gjfswh.com/index/4628496.html</a></p><br><br>
+<br><br><h3>叙利亚谴责以色列袭击“严重侵犯叙主权”</h3><br>
+<p>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会<br><br> | 来源：<a>http://qddhjbz.com/index/9096793.html</a></p><br><br>
+<br><br><h3>皇岗口岸举行首次港深联合压力测试 旅客1分钟内可通过合作查验通道</h3><br>
+<p>云港台近40名选手在云南抚仙湖扬帆竞速<br><br> | 来源：<a>http://www.sccykj.com.cn/index/3640817.html</a></p><br><br>
+<br><br><h3>哈尔滨一高校新生报到礼盒“冰”意十足</h3><br>
+<p>以防长称土耳其意图在叙基地开展危及以国家安全的活动<br><br> | 来源：<a>http://www.yfwl666.com/index/1646564.html</a></p><br><br>
+<br><br><h3>学体联2026年全国中学生啦啦操锦标赛在云南昭通开赛</h3><br>
+<p>黑龙江省工商联代表团赴港澳考察对接交流<br><br> | 来源：<a>http://dqcad.com/index/4687688.html</a></p><br><br>
+<br><br><h3>加拿大宣布9月8日起对美国商品征收报复性关税</h3><br>
+<p>日本本州岛5.8级地震已致多人受伤<br><br> | 来源：<a>http://www.soutugo.com/index/6763008.html</a></p><br><br>
+<br><br><h3>日本本州岛5.8级地震已致多人受伤</h3><br>
+<p>内部渠道免试代办教师资格证？警方：警惕诈骗！<br><br> | 来源：<a>http://www.xabrsy.com/index/4424990.html</a></p><br><br>
+<br><br><h3>皇岗口岸举行首次港深联合压力测试 旅客1分钟内可通过合作查验通道</h3><br>
+<p>美国友人“赛考斯”23日凌晨抵京 用中文说出“我回来了”<br><br> | 来源：<a>http://jdks.kleshuo.com/index/3580153.html</a></p><br><br>
+<br><br><h3>加拿大宣布9月8日起对美国商品征收报复性关税</h3><br>
+<p>上海野生动物园大熊猫龙凤胎姐弟迎一周岁<br><br> | 来源：<a>http://www.cbechero.net/index/2014378.html</a></p><br><br>
 <br><br><h3>重庆武陵山大裂谷：绝壁幽谷引客来</h3><br>
-<p>粤西沿海风浪加剧 湛江边检转移8名遇险船员<br><br> | 来源：<a>http://www.aiyouruote.com/index/9418606.html</a></p><br><br>
-<br><br><h3>福建启动防台风四级应急响应 平潭所有客渡船停航</h3><br>
-<p>皇岗口岸举行首次港深联合压力测试 旅客1分钟内可通过合作查验通道<br><br> | 来源：<a>http://sssladder.com/index/7302256.html</a></p><br><br>
-<br><br><h3>上海野生动物园大熊猫龙凤胎姐弟迎一周岁</h3><br>
-<p>2026中国社区乒乓球联赛全国首站开赛<br><br> | 来源：<a>http://sawatech.com.cn/index/0427832.html</a></p><br><br>
-<br><br><h3>探访“中国云谷”：看见绿色算力的真实模样</h3><br>
-<p>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会<br><br> | 来源：<a>http://hobbitep.com/index/8450031.html</a></p><br><br>
-<br><br><h3>黄金有罪？笑话！</h3><br>
-<p>哈尔滨一高校新生报到礼盒“冰”意十足<br><br> | 来源：<a>http://cleanwrap.com.cn/index/1916931.html</a></p><br><br>
+<p>学体联2026年全国中学生啦啦操锦标赛在云南昭通开赛<br><br> | 来源：<a>http://www.gdgbaf.com/index/3257456.html</a></p><br><br>
 <br><br><h3>人形机器人AstraTennis 时刻：银河通用的263秒全自主决策</h3><br>
-<p>普京称俄军加大对乌企业打击<br><br> | 来源：<a>http://jsdisfly.com/index/1589546.html</a></p><br><br>
-<br><br><h3>世界人形机器人运动会北京开幕 上千台机器人亮相</h3><br>
-<p>人形机器人AstraTennis 时刻：银河通用的263秒全自主决策<br><br> | 来源：<a>http://jskqly.com/index/9377865.html</a></p><br><br>
-<br><br><h3>重庆武陵山大裂谷：绝壁幽谷引客来</h3><br>
-<p>AI重塑创业单元 重庆“一人公司”如何叩响“未来之门”<br><br> | 来源：<a>http://dlsmwx.com/index/5914696.html</a></p><br><br>
-<br><br><h3>哈尔滨一高校新生报到礼盒“冰”意十足</h3><br>
-<p>胡昌华百余件书法精品长沙展出 呈现浓郁书卷气<br><br> | 来源：<a>http://zqsq1688.com/index/0286046.html</a></p><br><br>
-<br><br><h3>黑龙江省工商联代表团赴港澳考察对接交流</h3><br>
-<p>2026年中国贵阳亚洲青年攀岩锦标赛 中国队包揽U17女子攀石前三<br><br> | 来源：<a>http://cooteck.com/index/6908192.html</a></p><br><br>
-<br><br><h3>2026赛季中乙联赛：山西战平兰州进入冲甲组</h3><br>
-<p>学体联2026年全国中学生啦啦操锦标赛在云南昭通开赛<br><br> | 来源：<a>http://hongfupeixun.com/index/7618362.html</a></p><br><br>
-<br><br><h3>哈尔滨一高校新生报到礼盒“冰”意十足</h3><br>
-<p>2026科学智能大会在北京成功举办 为全球合作提供“中国方案”<br><br> | 来源：<a>http://www.mountech-it.com/index/3669153.html</a></p><br><br>
-<br><br><h3>以防长称土耳其意图在叙基地开展危及以国家安全的活动</h3><br>
-<p>多元业态升级！“电影+”延伸光影消费链条<br><br> | 来源：<a>http://www.volox-agv.com.cn/index/2830221.html</a></p><br><br>
-<br><br><h3>2026赛季中乙联赛：山西战平兰州进入冲甲组</h3><br>
-<p>美官员：约40艘油轮21日晚通过霍尔木兹海峡<br><br> | 来源：<a>http://www.lishangled.com/index/7246042.html</a></p><br><br>
-<br><br><h3>第二十一届宋庆龄少年儿童发明奖开放日在北京举办</h3><br>
-<p>上海推进药学服务转型 搭建交流互鉴、比武练兵平台<br><br> | 来源：<a>http://changyun688.com/index/1874834.html</a></p><br><br>
+<p>演员李昀锐与机器人百米“飞人”大战 五秒后被反超<br><br> | 来源：<a>http://wap.bsj.ntcar.cn/index/5047098.html</a></p><br><br>
+<br><br><h3>“赛考斯”抵达北京：美中两国可以携手建设更加美好的世界</h3><br>
+<p>探访“中国云谷”：看见绿色算力的真实模样<br><br> | 来源：<a>http://wzdaan.cn/index/8651297.html</a></p><br><br>
+<br><br><h3>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会</h3><br>
+<p>黄金有罪？笑话！<br><br> | 来源：<a>http://borui.sougo.net/index/5037096.html</a></p><br><br>
+<br><br><h3>日本本州岛5.8级地震已致多人受伤</h3><br>
+<p>加拿大宣布9月8日起对美国商品征收报复性关税<br><br> | 来源：<a>http://wansion.net/index/8412931.html</a></p><br><br>
 <br><br><h3>学体联2026年全国中学生啦啦操锦标赛在云南昭通开赛</h3><br>
-<p>世界人形机器人运动会北京开幕 上千台机器人亮相<br><br> | 来源：<a>http://www.pmipneumatic.com/index/6831841.html</a></p><br><br>
-<br><br><h3>中国共产党第二十届中央纪律检查委员会第六次全体会议公报</h3><br>
-<p>哈尔滨一高校新生报到礼盒“冰”意十足<br><br> | 来源：<a>http://en-cd.com/index/3168433.html</a></p><br><br>
-<br><br><h3>2026赛季中乙联赛：山西战平兰州进入冲甲组</h3><br>
-<p>粤西沿海风浪加剧 湛江边检转移8名遇险船员<br><br> | 来源：<a>http://www.stjiankangjia.com/index/4809002.html</a></p><br><br>
-<br><br><h3>2026年贵州“星火杯”国际少年足球邀请赛收官</h3><br>
-<p>粤西沿海风浪加剧 湛江边检转移8名遇险船员<br><br> | 来源：<a>http://www.cleanwrap.com.cn/index/4123606.html</a></p><br><br>
-<br><br><h3>云港台近40名选手在云南抚仙湖扬帆竞速</h3><br>
-<p>第二十一届宋庆龄少年儿童发明奖开放日在北京举办<br><br> | 来源：<a>http://w.wan-peng.com/index/9965250.html</a></p><br><br>
-<br><br><h3>2026年中国贵阳亚洲青年攀岩锦标赛 中国队包揽U17女子攀石前三</h3><br>
-<p>受台风“紫檀”影响 国铁广州局调整部分列车开行方案<br><br> | 来源：<a>http://jujingsw.cn/index/5148016.html</a></p><br><br>
-<br><br><h3>粤西沿海风浪加剧 湛江边检转移8名遇险船员</h3><br>
-<p>多元业态升级！“电影+”延伸光影消费链条<br><br> | 来源：<a>http://novofluo.com/index/5880950.html</a></p><br><br>
-<br><br><h3>重庆武陵山大裂谷：绝壁幽谷引客来</h3><br>
-<p>中国队击败新西兰队 晋级U18男篮亚洲杯决赛<br><br> | 来源：<a>http://nhjsy.com/index/1762415.html</a></p><br><br>
-<br><br><h3>真金白银投向群众所需，这场发布会讲清“投资于人”</h3><br>
-<p>以防长称土耳其意图在叙基地开展危及以国家安全的活动<br><br> | 来源：<a>http://www.shshoulu.com/index/9759406.html</a></p><br><br>
-<br><br><h3>应急管理部针对广西启动国家地质灾害四级应急响应</h3><br>
-<p>演员李昀锐与机器人百米“飞人”大战 五秒后被反超<br><br> | 来源：<a>http://js.water-cd.com/index/4949899.html</a></p><br><br>
-<br><br><h3>2026年贵州“星火杯”国际少年足球邀请赛收官</h3><br>
-<p>重庆武陵山大裂谷：绝壁幽谷引客来<br><br> | 来源：<a>http://www.haofengxs.com/index/5356478.html</a></p><br><br>
-<br><br><h3>中国共产党第二十届中央纪律检查委员会第六次全体会议公报</h3><br>
-<p>爱知·名古屋亚运会火炬传递启动<br><br> | 来源：<a>http://www.roadchem.com.cn/index/0414556.html</a></p><br><br>
-<br><br><h3>中国主题出版物及文创展在悉尼举行</h3><br>
-<p>2026年中国贵阳亚洲青年攀岩锦标赛 中国队包揽U17女子攀石前三<br><br> | 来源：<a>http://anewcare.chenland.cn/index/2372914.html</a></p><br><br>
-<br><br><h3>中国共产党第二十届中央纪律检查委员会第六次全体会议公报</h3><br>
-<p>故宫出版社新书讲述18世纪西方人视角下的东西文化交流<br><br> | 来源：<a>http://shmorui.com/index/0746666.html</a></p><br><br>
-<br><br><h3>爱知·名古屋亚运会火炬传递启动</h3><br>
-<p>故宫出版社新书讲述18世纪西方人视角下的东西文化交流<br><br> | 来源：<a>http://website-review-id208.mq163.com/index/0809404.html</a></p><br><br>
-<br><br><h3>受台风“紫檀”影响 国铁广州局调整部分列车开行方案</h3><br>
-<p>黑龙江省工商联代表团赴港澳考察对接交流<br><br> | 来源：<a>http://www.poprivet.cn/index/8858657.html</a></p><br><br>
+<p>故宫出版社新书讲述18世纪西方人视角下的东西文化交流<br><br> | 来源：<a>http://www.kaiyimei.com/index/3017270.html</a></p><br><br>
+<br><br><h3>美国友人“赛考斯”23日凌晨抵京 用中文说出“我回来了”</h3><br>
+<p>福建启动防台风四级应急响应 平潭所有客渡船停航<br><br> | 来源：<a>http://www.corues.cn/index/6650181.html</a></p><br><br>
 <br><br><h3>2026年度电影总票房超270亿！暑期档成绩亮眼刷新两项纪录</h3><br>
-<p>2026科学智能大会在北京成功举办 为全球合作提供“中国方案”<br><br> | 来源：<a>http://www.huikaishun.com/index/3924716.html</a></p><br><br>
-<br><br><h3>学体联2026年全国中学生啦啦操锦标赛在云南昭通开赛</h3><br>
-<p>应急管理部针对广西启动国家地质灾害四级应急响应<br><br> | 来源：<a>http://rongbeish.com/index/6303806.html</a></p><br><br>
-<br><br><h3>泡泡玛特亮相台湾秋季旅展 LABUBU、“星星人”圈粉青年</h3><br>
-<p>中国队击败新西兰队 晋级U18男篮亚洲杯决赛<br><br> | 来源：<a>http://www.materialhandling.cn/index/3995948.html</a></p><br><br>
-<br><br><h3>云港台近40名选手在云南抚仙湖扬帆竞速</h3><br>
-<p>AI重塑创业单元 重庆“一人公司”如何叩响“未来之门”<br><br> | 来源：<a>http://yingjiang-hk.com/index/8417761.html</a></p><br><br>
-<br><br><h3>故宫出版社新书讲述18世纪西方人视角下的东西文化交流</h3><br>
-<p>世界人形机器人运动会北京开幕 上千台机器人亮相<br><br> | 来源：<a>http://toyd.cn/index/5010099.html</a></p><br><br>
-<br><br><h3>受台风“紫檀”影响 国铁广州局调整部分列车开行方案</h3><br>
-<p>（经济观察）算力也能“存”和“买” 中国探索“算力银行”“算力超市”<br><br> | 来源：<a>http://wuxibaomei.com/index/7087920.html</a></p><br><br>
-<br><br><h3>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会</h3><br>
-<p>中国主题出版物及文创展在悉尼举行<br><br> | 来源：<a>http://cndya.com/index/4793471.html</a></p><br><br>
-<br><br><h3>普京称俄军加大对乌企业打击</h3><br>
-<p>普京称俄军加大对乌企业打击<br><br> | 来源：<a>http://shgkvc.cn/index/9705006.html</a></p><br><br>
-<br><br><h3>粤西沿海风浪加剧 湛江边检转移8名遇险船员</h3><br>
-<p>云港台近40名选手在云南抚仙湖扬帆竞速<br><br> | 来源：<a>http://www.eversticks.com/index/1302355.html</a></p><br><br>
-<br><br><h3>云港台近40名选手在云南抚仙湖扬帆竞速</h3><br>
-<p>2026科学智能大会在北京成功举办 为全球合作提供“中国方案”<br><br> | 来源：<a>http://bxkj.yshixun.com/index/9362623.html</a></p><br><br>
-<br><br><h3>第二十一届宋庆龄少年儿童发明奖开放日在北京举办</h3><br>
-<p>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会<br><br> | 来源：<a>http://www.chaoyangmedical.com/index/6482169.html</a></p><br><br>
-<br><br><h3>黄金有罪？笑话！</h3><br>
-<p>2026中国社区乒乓球联赛全国首站开赛<br><br> | 来源：<a>http://www.qushizqw.com/index/0615184.html</a></p><br><br>
+<p>2026科学智能大会在北京成功举办 为全球合作提供“中国方案”<br><br> | 来源：<a>http://hnzdcw.yshixun.com/index/6891525.html</a></p><br><br>
+<br><br><h3>皇岗口岸举行首次港深联合压力测试 旅客1分钟内可通过合作查验通道</h3><br>
+<p>2026赛季中乙联赛：山西战平兰州进入冲甲组<br><br> | 来源：<a>http://www.crfastener.com/index/1842513.html</a></p><br><br>
 <br><br><h3>探访“中国云谷”：看见绿色算力的真实模样</h3><br>
-<p>中国共产党第二十届中央纪律检查委员会第六次全体会议公报<br><br> | 来源：<a>http://www.cpglct.cn/index/9942767.html</a></p><br><br>
-<br><br><h3>内部渠道免试代办教师资格证？警方：警惕诈骗！</h3><br>
-<p>胡昌华百余件书法精品长沙展出 呈现浓郁书卷气<br><br> | 来源：<a>http://www.wzdaan.cn/index/2171153.html</a></p><br><br>
-<br><br><h3>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会</h3><br>
-<p>美官员：约40艘油轮21日晚通过霍尔木兹海峡<br><br> | 来源：<a>http://haimite.net/index/2006869.html</a></p><br><br>
+<p>AI重塑创业单元 重庆“一人公司”如何叩响“未来之门”<br><br> | 来源：<a>http://ups258.com/index/0141728.html</a></p><br><br>
+<br><br><h3>探访“中国云谷”：看见绿色算力的真实模样</h3><br>
+<p>2026科学智能大会在北京成功举办 为全球合作提供“中国方案”<br><br> | 来源：<a>http://cooteck.com/index/9502342.html</a></p><br><br>
+<br><br><h3>福建启动防台风四级应急响应 平潭所有客渡船停航</h3><br>
+<p>加拿大宣布9月8日起对美国商品征收报复性关税<br><br> | 来源：<a>http://sifang.yshixun.com/index/8297499.html</a></p><br><br>
+<br><br><h3>日本本州岛5.8级地震已致多人受伤</h3><br>
+<p>日本本州岛5.8级地震已致多人受伤<br><br> | 来源：<a>http://hobbitep.com/index/6860622.html</a></p><br><br>
+<br><br><h3>人形机器人AstraTennis 时刻：银河通用的263秒全自主决策</h3><br>
+<p>中国主题出版物及文创展在悉尼举行<br><br> | 来源：<a>http://hanmisoft.com/index/8396445.html</a></p><br><br>
+<br><br><h3>美国友人“赛考斯”23日凌晨抵京 用中文说出“我回来了”</h3><br>
+<p>上海野生动物园大熊猫龙凤胎姐弟迎一周岁<br><br> | 来源：<a>http://qn-buildin.com/index/1247916.html</a></p><br><br>
 <br><br><h3>演员李昀锐与机器人百米“飞人”大战 五秒后被反超</h3><br>
-<p>第二十一届宋庆龄少年儿童发明奖开放日在北京举办<br><br> | 来源：<a>http://www.bjbrcx.com/index/7913900.html</a></p><br><br>
-<br><br><h3>关灯看手机伤眼不可逆 三个方法降低伤害→</h3><br>
-<p>应急管理部针对广西启动国家地质灾害四级应急响应<br><br> | 来源：<a>http://www.hanvey.hk/index/1124161.html</a></p><br><br>
-<br><br><h3>学体联2026年全国中学生啦啦操锦标赛在云南昭通开赛</h3><br>
-<p>泡泡玛特亮相台湾秋季旅展 LABUBU、“星星人”圈粉青年<br><br> | 来源：<a>http://www.uright-bio.com/index/0506531.html</a></p><br><br>
-<br><br><h3>真金白银投向群众所需，这场发布会讲清“投资于人”</h3><br>
-<p>福建启动防台风四级应急响应 平潭所有客渡船停航<br><br> | 来源：<a>http://www.cdgtkd.com/index/8605683.html</a></p><br><br>
-<br><br><h3>加拿大要求卡车关税豁免，致使贸易谈判陷入危机</h3><br>
-<p>中国女排亚锦赛轻取伊拉克队 刷新单局最大分差<br><br> | 来源：<a>http://www.cts28.com/index/8096070.html</a></p><br><br>
-<br><br><h3>学体联2026年全国中学生啦啦操锦标赛在云南昭通开赛</h3><br>
-<p>人形机器人AstraTennis 时刻：银河通用的263秒全自主决策<br><br> | 来源：<a>http://www.yunchengguoji.com/index/3818320.html</a></p><br><br>
-<br><br><h3>演员李昀锐与机器人百米“飞人”大战 五秒后被反超</h3><br>
-<p>加拿大宣布对美国反制措施 下月将对200亿美元商品征报复性关税<br><br> | 来源：<a>http://www.hntggjg.cn/index/6144121.html</a></p><br><br>
-<br><br><h3>加拿大宣布对美国反制措施 下月将对200亿美元商品征报复性关税</h3><br>
-<p>加拿大宣布对美国反制措施 下月将对200亿美元商品征报复性关税<br><br> | 来源：<a>http://www.nocea.org.cn/index/6502029.html</a></p><br><br>
+<p>多元业态升级！“电影+”延伸光影消费链条<br><br> | 来源：<a>http://stjiankangjia.com/index/7033695.html</a></p><br><br>
+<br><br><h3>中国女排亚锦赛轻取伊拉克队 刷新单局最大分差</h3><br>
+<p>2026年贵州“星火杯”国际少年足球邀请赛收官<br><br> | 来源：<a>http://www.anortrek.com/index/6308298.html</a></p><br><br>
 <br><br><h3>2026年中国贵阳亚洲青年攀岩锦标赛 中国队包揽U17女子攀石前三</h3><br>
-<p>内部渠道免试代办教师资格证？警方：警惕诈骗！<br><br> | 来源：<a>http://volox-agv.com.cn/index/7005315.html</a></p><br><br>
-<br><br><h3>学体联2026年全国中学生啦啦操锦标赛在云南昭通开赛</h3><br>
-<p>上海野生动物园大熊猫龙凤胎姐弟迎一周岁<br><br> | 来源：<a>http://www.cleanwrap.com.cn/index/3760893.html</a></p><br><br>
-<br><br><h3>福建启动防台风四级应急响应 平潭所有客渡船停航</h3><br>
-<p>普京称俄军加大对乌企业打击<br><br> | 来源：<a>http://tvpusher.com/index/9888094.html</a></p><br><br>
-<br><br><h3>皇岗口岸举行首次港深联合压力测试 旅客1分钟内可通过合作查验通道</h3><br>
-<p>云港台近40名选手在云南抚仙湖扬帆竞速<br><br> | 来源：<a>http://sj.sougo.net/index/8724077.html</a></p><br><br>
-<br><br><h3>越南青年赴广西研学 感知中国科创活力</h3><br>
-<p>普京称俄军加大对乌企业打击<br><br> | 来源：<a>http://www.shbjhx.com/index/6875114.html</a></p><br><br>
-<br><br><h3>学体联2026年全国中学生啦啦操锦标赛在云南昭通开赛</h3><br>
-<p>侨链全球开新局 第十二届侨交会收官<br><br> | 来源：<a>http://www.itihardware.com/index/5551988.html</a></p><br><br>
-<br><br><h3>胡昌华百余件书法精品长沙展出 呈现浓郁书卷气</h3><br>
-<p>中国女排亚锦赛轻取伊拉克队 刷新单局最大分差<br><br> | 来源：<a>http://wzhualiang.com/index/1711973.html</a></p><br><br>
-<br><br><h3>哈尔滨一高校新生报到礼盒“冰”意十足</h3><br>
-<p>2026年贵州“星火杯”国际少年足球邀请赛收官<br><br> | 来源：<a>http://www.dj-is.com/index/2296031.html</a></p><br><br>
-<br><br><h3>中国共产党第二十届中央纪律检查委员会第六次全体会议公报</h3><br>
-<p>越南青年赴广西研学 感知中国科创活力<br><br> | 来源：<a>http://www.crystalpavilion.com.cn/index/9930308.html</a></p><br><br>
-<br><br><h3>应急管理部针对广西启动国家地质灾害四级应急响应</h3><br>
-<p>2026科学智能大会在北京成功举办 为全球合作提供“中国方案”<br><br> | 来源：<a>http://mlry.com.cn/index/2973571.html</a></p><br><br>
-<br><br><h3>泡泡玛特亮相台湾秋季旅展 LABUBU、“星星人”圈粉青年</h3><br>
-<p>2026赛季中乙联赛：山西战平兰州进入冲甲组<br><br> | 来源：<a>http://www.aekchina.com/index/0492304.html</a></p><br><br>
-<br><br><h3>世界人形机器人运动会北京开幕 上千台机器人亮相</h3><br>
-<p>中国女排亚锦赛轻取伊拉克队 刷新单局最大分差<br><br> | 来源：<a>http://wxhaotong.cn/index/8948595.html</a></p><br><br>
-<br><br><h3>故宫出版社新书讲述18世纪西方人视角下的东西文化交流</h3><br>
-<p>美官员：约40艘油轮21日晚通过霍尔木兹海峡<br><br> | 来源：<a>http://jtchip.com/index/5440532.html</a></p><br><br>
-<br><br><h3>加拿大要求卡车关税豁免，致使贸易谈判陷入危机</h3><br>
-<p>（经济观察）算力也能“存”和“买” 中国探索“算力银行”“算力超市”<br><br> | 来源：<a>http://sh-kfly.com/index/5973202.html</a></p><br><br>
-<br><br><h3>黄金有罪？笑话！</h3><br>
-<p>中国主题出版物及文创展在悉尼举行<br><br> | 来源：<a>http://www.seamandiesel.com/index/8079812.html</a></p><br><br>
-<br><br><h3>应急管理部针对广西启动国家地质灾害四级应急响应</h3><br>
-<p>探访“中国云谷”：看见绿色算力的真实模样<br><br> | 来源：<a>http://www.camfollowerchina.com/index/0056354.html</a></p><br><br>
-<br><br><h3>学体联2026年全国中学生啦啦操锦标赛在云南昭通开赛</h3><br>
-<p>2026中国社区乒乓球联赛全国首站开赛<br><br> | 来源：<a>http://www.gdamg.com/index/7476223.html</a></p><br><br>
-<br><br><h3>（经济观察）算力也能“存”和“买” 中国探索“算力银行”“算力超市”</h3><br>
-<p>以防长称土耳其意图在叙基地开展危及以国家安全的活动<br><br> | 来源：<a>http://qdbk.ntcar.cn/index/6192942.html</a></p><br><br>
-<br><br><h3>爱知·名古屋亚运会火炬传递启动</h3><br>
-<p>中国主题出版物及文创展在悉尼举行<br><br> | 来源：<a>http://daquan.qushizqw.com/index/4407334.html</a></p><br><br>
-<br><br><h3>真金白银投向群众所需，这场发布会讲清“投资于人”</h3><br>
-<p>以防长称土耳其意图在叙基地开展危及以国家安全的活动<br><br> | 来源：<a>http://x.wan-peng.com/index/0422385.html</a></p><br><br>
-<br><br><h3>探访“中国云谷”：看见绿色算力的真实模样</h3><br>
-<p>应急管理部针对广西启动国家地质灾害四级应急响应<br><br> | 来源：<a>http://www.gdzshqt.com/index/1400510.html</a></p><br><br>
-<br><br><h3>第二十一届宋庆龄少年儿童发明奖开放日在北京举办</h3><br>
-<p>肺癌全程个案管理实践指南发布 破解“出院就脱管”困境<br><br> | 来源：<a>http://cn-k.com/index/4000477.html</a></p><br><br>
-<br><br><h3>2026年贵州“星火杯”国际少年足球邀请赛收官</h3><br>
-<p>受台风“紫檀”影响 国铁广州局调整部分列车开行方案<br><br> | 来源：<a>http://www.wuxibaomei.cn/index/1693924.html</a></p><br><br>
-<br><br><h3>世界人形机器人运动会北京开幕 上千台机器人亮相</h3><br>
-<p>学体联2026年全国中学生啦啦操锦标赛在云南昭通开赛<br><br> | 来源：<a>http://www.inkwin.cn/index/8661780.html</a></p><br><br>
-<br><br><h3>泡泡玛特亮相台湾秋季旅展 LABUBU、“星星人”圈粉青年</h3><br>
-<p>上海野生动物园大熊猫龙凤胎姐弟迎一周岁<br><br> | 来源：<a>http://ywgg.soutugo.com/index/4288617.html</a></p><br><br>
-<br><br><h3>皇岗口岸举行首次港深联合压力测试 旅客1分钟内可通过合作查验通道</h3><br>
-<p>福建启动防台风四级应急响应 平潭所有客渡船停航<br><br> | 来源：<a>http://www.exformma.com/index/1806257.html</a></p><br><br>
-<br><br><h3>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会</h3><br>
-<p>上海推进药学服务转型 搭建交流互鉴、比武练兵平台<br><br> | 来源：<a>http://hydraulicpm.com/index/1386811.html</a></p><br><br>
-<br><br><h3>爱知·名古屋亚运会火炬传递启动</h3><br>
-<p>黄金有罪？笑话！<br><br> | 来源：<a>http://www.enshangwang.org/index/5144838.html</a></p><br><br>
-<br><br><h3>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会</h3><br>
-<p>2026中国社区乒乓球联赛全国首站开赛<br><br> | 来源：<a>http://www.dzqd.cn/index/9496834.html</a></p><br><br>
-<br><br><h3>受台风“紫檀”影响 国铁广州局调整部分列车开行方案</h3><br>
-<p>AI重塑创业单元 重庆“一人公司”如何叩响“未来之门”<br><br> | 来源：<a>http://xzlzlgs.com/index/2513568.html</a></p><br><br>
-<br><br><h3>多元业态升级！“电影+”延伸光影消费链条</h3><br>
-<p>侨链全球开新局 第十二届侨交会收官<br><br> | 来源：<a>http://www.aimniche.com/index/9566606.html</a></p><br><br>
-<br><br><h3>上海野生动物园大熊猫龙凤胎姐弟迎一周岁</h3><br>
-<p>上海野生动物园大熊猫龙凤胎姐弟迎一周岁<br><br> | 来源：<a>http://chemls.com/index/7800521.html</a></p><br><br>
-<br><br><h3>中国主题出版物及文创展在悉尼举行</h3><br>
-<p>多元业态升级！“电影+”延伸光影消费链条<br><br> | 来源：<a>http://www.shchaoh.com/index/0353154.html</a></p><br><br>
-<br><br><h3>关灯看手机伤眼不可逆 三个方法降低伤害→</h3><br>
-<p>上海野生动物园大熊猫龙凤胎姐弟迎一周岁<br><br> | 来源：<a>http://www.corues.cn/index/0437066.html</a></p><br><br>
-<br><br><h3>福建启动防台风四级应急响应 平潭所有客渡船停航</h3><br>
-<p>以防长称土耳其意图在叙基地开展危及以国家安全的活动<br><br> | 来源：<a>http://m.qdbk.ntcar.cn/index/0258081.html</a></p><br><br>
-<br><br><h3>探访“中国云谷”：看见绿色算力的真实模样</h3><br>
-<p>真金白银投向群众所需，这场发布会讲清“投资于人”<br><br> | 来源：<a>http://www.gbshi.cn/index/7139086.html</a></p><br><br>
-<br><br><h3>应急管理部针对广西启动国家地质灾害四级应急响应</h3><br>
-<p>（经济观察）算力也能“存”和“买” 中国探索“算力银行”“算力超市”<br><br> | 来源：<a>http://www.trend-precision.com/index/4611836.html</a></p><br><br>
-<br><br><h3>哈尔滨一高校新生报到礼盒“冰”意十足</h3><br>
-<p>上海推进药学服务转型 搭建交流互鉴、比武练兵平台<br><br> | 来源：<a>http://m.shzhongyou.com/index/4097184.html</a></p><br><br>
-<br><br><h3>AI重塑创业单元 重庆“一人公司”如何叩响“未来之门”</h3><br>
-<p>关灯看手机伤眼不可逆 三个方法降低伤害→<br><br> | 来源：<a>http://songjiang3.mq163.net/index/9044789.html</a></p><br><br>
-<br><br><h3>中国共产党第二十届中央纪律检查委员会第六次全体会议公报</h3><br>
-<p>侨链全球开新局 第十二届侨交会收官<br><br> | 来源：<a>http://www.quelongmotor.com/index/5342813.html</a></p><br><br>
-<br><br><h3>真金白银投向群众所需，这场发布会讲清“投资于人”</h3><br>
-<p>真金白银投向群众所需，这场发布会讲清“投资于人”<br><br> | 来源：<a>http://dzqd.cn/index/4022483.html</a></p><br><br>
-<br><br><h3>侨链全球开新局 第十二届侨交会收官</h3><br>
-<p>爱知·名古屋亚运会火炬传递启动<br><br> | 来源：<a>http://www.yunmmedia.com/index/4665529.html</a></p><br><br>
-<br><br><h3>侨链全球开新局 第十二届侨交会收官</h3><br>
-<p>AI重塑创业单元 重庆“一人公司”如何叩响“未来之门”<br><br> | 来源：<a>http://www.chifin.cn/index/7005614.html</a></p><br><br>
-<br><br><h3>福建启动防台风四级应急响应 平潭所有客渡船停航</h3><br>
-<p>探访“中国云谷”：看见绿色算力的真实模样<br><br> | 来源：<a>http://www.wuxibaomei.com/index/5774633.html</a></p><br><br>
-<br><br><h3>内部渠道免试代办教师资格证？警方：警惕诈骗！</h3><br>
-<p>2026科学智能大会在北京成功举办 为全球合作提供“中国方案”<br><br> | 来源：<a>http://chinaris.cn/index/7168037.html</a></p><br><br>
-<br><br><h3>哈尔滨一高校新生报到礼盒“冰”意十足</h3><br>
-<p>胡昌华百余件书法精品长沙展出 呈现浓郁书卷气<br><br> | 来源：<a>http://kehu.net.cn/index/6526011.html</a></p><br><br>
-<br><br><h3>受台风“紫檀”影响 国铁广州局调整部分列车开行方案</h3><br>
-<p>中国女排亚锦赛轻取伊拉克队 刷新单局最大分差<br><br> | 来源：<a>http://gmcomp.com/index/9010868.html</a></p><br><br>
-<br><br><h3>黑龙江省工商联代表团赴港澳考察对接交流</h3><br>
-<p>上海野生动物园大熊猫龙凤胎姐弟迎一周岁<br><br> | 来源：<a>http://hanvey.hk/index/1410986.html</a></p><br><br>
-<br><br><h3>第二十一届宋庆龄少年儿童发明奖开放日在北京举办</h3><br>
-<p>学体联2026年全国中学生啦啦操锦标赛在云南昭通开赛<br><br> | 来源：<a>http://www.ts-wtsrq.com/index/9056881.html</a></p><br><br>
-<br><br><h3>2026中国社区乒乓球联赛全国首站开赛</h3><br>
-<p>粤西沿海风浪加剧 湛江边检转移8名遇险船员<br><br> | 来源：<a>http://www.chenqiangkg.com/index/5930877.html</a></p><br><br>
-<br><br><h3>受台风“紫檀”影响 国铁广州局调整部分列车开行方案</h3><br>
-<p>世界人形机器人运动会400米田径预赛：天工机器人39.7秒第一<br><br> | 来源：<a>http://www.gunreal.cn/index/8538376.html</a></p><br><br>
-<br><br><h3>学者蒙曼：湖南沅陵是扣住大西南的“文化纽扣”</h3><br>
-<p>故宫出版社新书讲述18世纪西方人视角下的东西文化交流<br><br> | 来源：<a>http://wan-peng.com/index/9035637.html</a></p><br><br>
-<br><br><h3>受台风“紫檀”影响 国铁广州局调整部分列车开行方案</h3><br>
-<p>以防长称土耳其意图在叙基地开展危及以国家安全的活动<br><br> | 来源：<a>http://old.51ggb.cn/index/5130353.html</a></p><br><br>
-<br><br><h3>学体联2026年全国中学生啦啦操锦标赛在云南昭通开赛</h3><br>
-<p>2026赛季中乙联赛：山西战平兰州进入冲甲组<br><br> | 来源：<a>http://website-review-id201.mq163.com/index/9799307.html</a></p><br><br>
-<br><br><h3>应急管理部针对广西启动国家地质灾害四级应急响应</h3><br>
-<p>2026年中国贵阳亚洲青年攀岩锦标赛 中国队包揽U17女子攀石前三<br><br> | 来源：<a>http://sraccessfloor.com/index/3505560.html</a></p><br><br>
-<br><br><h3>皇岗口岸举行首次港深联合压力测试 旅客1分钟内可通过合作查验通道</h3><br>
-<p>演员李昀锐与机器人百米“飞人”大战 五秒后被反超<br><br> | 来源：<a>http://chirl-tech.com/index/3639271.html</a></p><br><br>
+<p>叙利亚谴责以色列袭击“严重侵犯叙主权”<br><br> | 来源：<a>http://qingdao.seohaosou.cn/index/2292701.html</a></p><br><br>
+<br><br><h3>中国女排亚锦赛轻取伊拉克队 刷新单局最大分差</h3><br>
+<p>爱知·名古屋亚运会火炬传递启动<br><br> | 来源：<a>http://www.kaiyimei.com/index/5498458.html</a></p><br><br>
 <br><br><h3>演员李昀锐与机器人百米“飞人”大战 五秒后被反超</h3><br>
-<p>中国共产党第二十届中央纪律检查委员会第六次全体会议公报<br><br> | 来源：<a>http://www.dlwmkj.com/index/0456848.html</a></p><br><br>
-<br><br><h3>上海推进药学服务转型 搭建交流互鉴、比武练兵平台</h3><br>
-<p>中国女排亚锦赛轻取伊拉克队 刷新单局最大分差<br><br> | 来源：<a>http://dj-is.com/index/2605932.html</a></p><br><br>
+<p>2026赛季中乙联赛：山西战平兰州进入冲甲组<br><br> | 来源：<a>http://51ggb.com/index/1991154.html</a></p><br><br>
+<br><br><h3>AI重塑创业单元 重庆“一人公司”如何叩响“未来之门”</h3><br>
+<p>故宫出版社新书讲述18世纪西方人视角下的东西文化交流<br><br> | 来源：<a>http://www.qushizqw.com/index/2494460.html</a></p><br><br>
+<br><br><h3>重庆武陵山大裂谷：绝壁幽谷引客来</h3><br>
+<p>加拿大宣布9月8日起对美国商品征收报复性关税<br><br> | 来源：<a>http://puningtech.com/index/9289449.html</a></p><br><br>
+<br><br><h3>普京称俄军加大对乌企业打击</h3><br>
+<p>人工智能进课堂，如何学得更好<br><br> | 来源：<a>http://www.shlhzk.com/index/4881213.html</a></p><br><br>
+<br><br><h3>“赛考斯”抵达北京：美中两国可以携手建设更加美好的世界</h3><br>
+<p>黄金有罪？笑话！<br><br> | 来源：<a>http://www.xabrsy.com/index/0695727.html</a></p><br><br>
+<br><br><h3>重庆武陵山大裂谷：绝壁幽谷引客来</h3><br>
+<p>2026赛季中乙联赛：山西战平兰州进入冲甲组<br><br> | 来源：<a>http://www.dqcad.com/index/4569459.html</a></p><br><br>
+<br><br><h3>上海野生动物园大熊猫龙凤胎姐弟迎一周岁</h3><br>
+<p>2026科学智能大会在北京成功举办 为全球合作提供“中国方案”<br><br> | 来源：<a>http://www.njcyjsgc.com/index/2644470.html</a></p><br><br>
+<br><br><h3>中国队击败新西兰队 晋级U18男篮亚洲杯决赛</h3><br>
+<p>内部渠道免试代办教师资格证？警方：警惕诈骗！<br><br> | 来源：<a>http://bornyi.com/index/6493024.html</a></p><br><br>
+<br><br><h3>侨链全球开新局 第十二届侨交会收官</h3><br>
+<p>人形机器人AstraTennis 时刻：银河通用的263秒全自主决策<br><br> | 来源：<a>http://www.chirl-tech.com/index/3338430.html</a></p><br><br>
+<br><br><h3>加拿大要求卡车关税豁免，致使贸易谈判陷入危机</h3><br>
+<p>黄金有罪？笑话！<br><br> | 来源：<a>http://www.chinaris.cn/index/0244266.html</a></p><br><br>
+<br><br><h3>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会</h3><br>
+<p>“赛考斯”抵达北京：美中两国可以携手建设更加美好的世界<br><br> | 来源：<a>http://www.zwdldj.com/index/6265853.html</a></p><br><br>
+<br><br><h3>宁夏长城非遗展览馆试运营</h3><br>
+<p>美官员：约40艘油轮21日晚通过霍尔木兹海峡<br><br> | 来源：<a>http://www.px551.cn/index/3562210.html</a></p><br><br>
+<br><br><h3>演员李昀锐与机器人百米“飞人”大战 五秒后被反超</h3><br>
+<p>粤西沿海风浪加剧 湛江边检转移8名遇险船员<br><br> | 来源：<a>http://www.stssh.com/index/6745788.html</a></p><br><br>
+<br><br><h3>关灯看手机伤眼不可逆 三个方法降低伤害→</h3><br>
+<p>世界人形机器人运动会北京开幕 上千台机器人亮相<br><br> | 来源：<a>http://www.dzqd.cn/index/1217894.html</a></p><br><br>
+<br><br><h3>以防长称土耳其意图在叙基地开展危及以国家安全的活动</h3><br>
+<p>侨链全球开新局 第十二届侨交会收官<br><br> | 来源：<a>http://www.suoler.com/index/1110927.html</a></p><br><br>
+<br><br><h3>加拿大要求卡车关税豁免，致使贸易谈判陷入危机</h3><br>
+<p>内部渠道免试代办教师资格证？警方：警惕诈骗！<br><br> | 来源：<a>http://www.shgkvc.cn/index/8486838.html</a></p><br><br>
+<br><br><h3>“赛考斯”抵达北京：美中两国可以携手建设更加美好的世界</h3><br>
+<p>侨链全球开新局 第十二届侨交会收官<br><br> | 来源：<a>http://www.zqsq1688.com/index/0310209.html</a></p><br><br>
 <br><br><h3>学体联2026年全国中学生啦啦操锦标赛在云南昭通开赛</h3><br>
-<p>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会<br><br> | 来源：<a>http://www.xzpcpz.com/index/3740983.html</a></p><br><br>
+<p>日本茨城县南部发生5.9级地震 东京震感明显<br><br> | 来源：<a>http://shxinde.cn/index/1649777.html</a></p><br><br>
+<br><br><h3>哈尔滨一高校新生报到礼盒“冰”意十足</h3><br>
+<p>黑龙江省工商联代表团赴港澳考察对接交流<br><br> | 来源：<a>http://www.meibaolong.com.cn/index/8899457.html</a></p><br><br>
+<br><br><h3>探访“中国云谷”：看见绿色算力的真实模样</h3><br>
+<p>福建启动防台风四级应急响应 平潭所有客渡船停航<br><br> | 来源：<a>http://www.haofengxs.com/index/5843953.html</a></p><br><br>
+<br><br><h3>泡泡玛特亮相台湾秋季旅展 LABUBU、“星星人”圈粉青年</h3><br>
+<p>粤西沿海风浪加剧 湛江边检转移8名遇险船员<br><br> | 来源：<a>http://www.jszxba.com/index/0306707.html</a></p><br><br>
+<br><br><h3>皇岗口岸举行首次港深联合压力测试 旅客1分钟内可通过合作查验通道</h3><br>
+<p>世界人形机器人运动会北京开幕 上千台机器人亮相<br><br> | 来源：<a>http://www.51ggb.cn/index/2647552.html</a></p><br><br>
+<br><br><h3>2026羽毛球世锦赛：中国组合梁伟铿/王昶挺进男双决赛</h3><br>
+<p>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会<br><br> | 来源：<a>http://www.grfcsh.com/index/7703737.html</a></p><br><br>
+<br><br><h3>粤西沿海风浪加剧 湛江边检转移8名遇险船员</h3><br>
+<p>中国主题出版物及文创展在悉尼举行<br><br> | 来源：<a>http://sofinest.com/index/1838357.html</a></p><br><br>
+<br><br><h3>黄金有罪？笑话！</h3><br>
+<p>加拿大要求卡车关税豁免，致使贸易谈判陷入危机<br><br> | 来源：<a>http://www.hntggjg.cn/index/8237106.html</a></p><br><br>
+<br><br><h3>粤西沿海风浪加剧 湛江边检转移8名遇险船员</h3><br>
+<p>加拿大要求卡车关税豁免，致使贸易谈判陷入危机<br><br> | 来源：<a>http://www.aiyounuo.cn/index/8018500.html</a></p><br><br>
+<br><br><h3>黑龙江省工商联代表团赴港澳考察对接交流</h3><br>
+<p>越南青年赴广西研学 感知中国科创活力<br><br> | 来源：<a>http://px551.cn/index/5163983.html</a></p><br><br>
+<br><br><h3>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会</h3><br>
+<p>2026年贵州“星火杯”国际少年足球邀请赛收官<br><br> | 来源：<a>http://www.biaoqian.com/index/7036424.html</a></p><br><br>
+<br><br><h3>侨链全球开新局 第十二届侨交会收官</h3><br>
+<p>黄金有罪？笑话！<br><br> | 来源：<a>http://www.gdancen.cn/index/5152533.html</a></p><br><br>
+<br><br><h3>日本本州岛5.8级地震已致多人受伤</h3><br>
+<p>2026年贵州“星火杯”国际少年足球邀请赛收官<br><br> | 来源：<a>http://zdsj.top/index/5581400.html</a></p><br><br>
 <br><br><h3>福建启动防台风四级应急响应 平潭所有客渡船停航</h3><br>
-<p>世界人形机器人运动会400米田径预赛：天工机器人39.7秒第一<br><br> | 来源：<a>http://liyuanxun.com/index/9208861.html</a></p><br><br>
+<p>皇岗口岸举行首次港深联合压力测试 旅客1分钟内可通过合作查验通道<br><br> | 来源：<a>http://www.luancolor.com/index/9627835.html</a></p><br><br>
+<br><br><h3>日本本州岛5.8级地震已致多人受伤</h3><br>
+<p>AI重塑创业单元 重庆“一人公司”如何叩响“未来之门”<br><br> | 来源：<a>http://www.365tl.cn/index/3717391.html</a></p><br><br>
+<br><br><h3>内部渠道免试代办教师资格证？警方：警惕诈骗！</h3><br>
+<p>以防长称土耳其意图在叙基地开展危及以国家安全的活动<br><br> | 来源：<a>http://www.hezisemi.com/index/0412146.html</a></p><br><br>
+<br><br><h3>美官员：约40艘油轮21日晚通过霍尔木兹海峡</h3><br>
+<p>以防长称土耳其意图在叙基地开展危及以国家安全的活动<br><br> | 来源：<a>http://shchengyang.com/index/4676196.html</a></p><br><br>
+<br><br><h3>美国友人“赛考斯”23日凌晨抵京 用中文说出“我回来了”</h3><br>
+<p>黄金有罪？笑话！<br><br> | 来源：<a>http://www.cdsplendor.com/index/8570571.html</a></p><br><br>
+<br><br><h3>多元业态升级！“电影+”延伸光影消费链条</h3><br>
+<p>故宫出版社新书讲述18世纪西方人视角下的东西文化交流<br><br> | 来源：<a>http://shqyee.com/index/0903410.html</a></p><br><br>
+<br><br><h3>泡泡玛特亮相台湾秋季旅展 LABUBU、“星星人”圈粉青年</h3><br>
+<p>2026年度电影总票房超270亿！暑期档成绩亮眼刷新两项纪录<br><br> | 来源：<a>http://zhongxi-cpa.com/index/4835467.html</a></p><br><br>
+<br><br><h3>中国队击败新西兰队 晋级U18男篮亚洲杯决赛</h3><br>
+<p>2026羽毛球世锦赛：中国组合梁伟铿/王昶挺进男双决赛<br><br> | 来源：<a>http://www.maximumtex.com/index/4375669.html</a></p><br><br>
+<br><br><h3>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会</h3><br>
+<p>多元业态升级！“电影+”延伸光影消费链条<br><br> | 来源：<a>http://www.31260939.com/index/0322235.html</a></p><br><br>
+<br><br><h3>2026羽毛球世锦赛：中国组合梁伟铿/王昶挺进男双决赛</h3><br>
+<p>学体联2026年全国中学生啦啦操锦标赛在云南昭通开赛<br><br> | 来源：<a>http://corues.cn/index/0234470.html</a></p><br><br>
+<br><br><h3>世界人形机器人运动会400米田径预赛：天工机器人39.7秒第一</h3><br>
+<p>美官员：约40艘油轮21日晚通过霍尔木兹海峡<br><br> | 来源：<a>http://www.rlswsh.com/index/6727711.html</a></p><br><br>
+<br><br><h3>2026年贵州“星火杯”国际少年足球邀请赛收官</h3><br>
+<p>关灯看手机伤眼不可逆 三个方法降低伤害→<br><br> | 来源：<a>http://qingdao.seohaosou.cn/index/7382061.html</a></p><br><br>
+<br><br><h3>日本茨城县南部发生5.9级地震 东京震感明显</h3><br>
+<p>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会<br><br> | 来源：<a>http://m.shzhongyou.com/index/6998290.html</a></p><br><br>
+<br><br><h3>加拿大要求卡车关税豁免，致使贸易谈判陷入危机</h3><br>
+<p>“赛考斯”抵达北京：美中两国可以携手建设更加美好的世界<br><br> | 来源：<a>http://dslm.tvpusher.com/index/6765207.html</a></p><br><br>
+<br><br><h3>人形机器人AstraTennis 时刻：银河通用的263秒全自主决策</h3><br>
+<p>演员李昀锐与机器人百米“飞人”大战 五秒后被反超<br><br> | 来源：<a>http://cangyouweb.zsjb168.com/index/8729716.html</a></p><br><br>
+<br><br><h3>叙利亚谴责以色列袭击“严重侵犯叙主权”</h3><br>
+<p>重庆武陵山大裂谷：绝壁幽谷引客来<br><br> | 来源：<a>http://chinazhengdong.com/index/3395947.html</a></p><br><br>
+<br><br><h3>中国主题出版物及文创展在悉尼举行</h3><br>
+<p>日本茨城县南部发生5.9级地震 东京震感明显<br><br> | 来源：<a>http://www.brother-chn.com/index/3500476.html</a></p><br><br>
+<br><br><h3>加拿大要求卡车关税豁免，致使贸易谈判陷入危机</h3><br>
+<p>2026年度电影总票房超270亿！暑期档成绩亮眼刷新两项纪录<br><br> | 来源：<a>http://www.qn-buildin.com/index/5218507.html</a></p><br><br>
+<br><br><h3>内部渠道免试代办教师资格证？警方：警惕诈骗！</h3><br>
+<p>加拿大宣布对美国反制措施 下月将对200亿美元商品征报复性关税<br><br> | 来源：<a>http://dzqd.cn/index/4991418.html</a></p><br><br>
+<br><br><h3>（经济观察）算力也能“存”和“买” 中国探索“算力银行”“算力超市”</h3><br>
+<p>2026年中国贵阳亚洲青年攀岩锦标赛 中国队包揽U17女子攀石前三<br><br> | 来源：<a>http://hr.ysshj.com.cn/index/0968206.html</a></p><br><br>
+<br><br><h3>2026羽毛球世锦赛：中国组合梁伟铿/王昶挺进男双决赛</h3><br>
+<p>重庆武陵山大裂谷：绝壁幽谷引客来<br><br> | 来源：<a>http://www.exformma.com/index/8375623.html</a></p><br><br>
+<br><br><h3>2026年度电影总票房超270亿！暑期档成绩亮眼刷新两项纪录</h3><br>
+<p>2026赛季中乙联赛：山西战平兰州进入冲甲组<br><br> | 来源：<a>http://shqyee.com/index/3375047.html</a></p><br><br>
+<br><br><h3>越南青年赴广西研学 感知中国科创活力</h3><br>
+<p>云港台近40名选手在云南抚仙湖扬帆竞速<br><br> | 来源：<a>http://www.youxiangmy.cn/index/8208621.html</a></p><br><br>
+<br><br><h3>日本本州岛5.8级地震已致多人受伤</h3><br>
+<p>爱知·名古屋亚运会火炬传递启动<br><br> | 来源：<a>http://huikaishun.com/index/8182069.html</a></p><br><br>
+<br><br><h3>加拿大要求卡车关税豁免，致使贸易谈判陷入危机</h3><br>
+<p>2026赛季中乙联赛：山西战平兰州进入冲甲组<br><br> | 来源：<a>http://zrcaipu.com/index/7217899.html</a></p><br><br>
+<br><br><h3>加拿大宣布9月8日起对美国商品征收报复性关税</h3><br>
+<p>世界人形机器人运动会北京开幕 上千台机器人亮相<br><br> | 来源：<a>http://x.wan-peng.com/index/7314536.html</a></p><br><br>
+<br><br><h3>皇岗口岸举行首次港深联合压力测试 旅客1分钟内可通过合作查验通道</h3><br>
+<p>以防长称土耳其意图在叙基地开展危及以国家安全的活动<br><br> | 来源：<a>http://4g.pnetewea.com/index/5394966.html</a></p><br><br>
+<br><br><h3>加拿大宣布9月8日起对美国商品征收报复性关税</h3><br>
+<p>（经济观察）算力也能“存”和“买” 中国探索“算力银行”“算力超市”<br><br> | 来源：<a>http://www.dzqd.cn/index/5555918.html</a></p><br><br>
+<br><br><h3>日本本州岛5.8级地震已致多人受伤</h3><br>
+<p>越南青年赴广西研学 感知中国科创活力<br><br> | 来源：<a>http://www.rsttekic.com/index/4333805.html</a></p><br><br>
+<br><br><h3>加拿大宣布9月8日起对美国商品征收报复性关税</h3><br>
+<p>越南青年赴广西研学 感知中国科创活力<br><br> | 来源：<a>http://chemtronbio.com/index/6990691.html</a></p><br><br>
+<br><br><h3>（经济观察）算力也能“存”和“买” 中国探索“算力银行”“算力超市”</h3><br>
+<p>日本本州岛5.8级地震已致多人受伤<br><br> | 来源：<a>http://www.jujingsw.cn/index/8673388.html</a></p><br><br>
+<br><br><h3>世界人形机器人运动会400米田径预赛：天工机器人39.7秒第一</h3><br>
+<p>2026年中国贵阳亚洲青年攀岩锦标赛 中国队包揽U17女子攀石前三<br><br> | 来源：<a>http://www.roadchem.com.cn/index/6533654.html</a></p><br><br>
+<br><br><h3>皇岗口岸举行首次港深联合压力测试 旅客1分钟内可通过合作查验通道</h3><br>
+<p>世界人形机器人运动会北京开幕 上千台机器人亮相<br><br> | 来源：<a>http://hezhongsz.cn/index/3467866.html</a></p><br><br>
+<br><br><h3>美国友人“赛考斯”23日凌晨抵京 用中文说出“我回来了”</h3><br>
+<p>日本本州岛5.8级地震已致多人受伤<br><br> | 来源：<a>http://car.ntcar.cn/index/9499803.html</a></p><br><br>
+<br><br><h3>日本本州岛5.8级地震已致多人受伤</h3><br>
+<p>日本茨城县南部发生5.9级地震 东京震感明显<br><br> | 来源：<a>http://zhongxi-cpa.com/index/6551328.html</a></p><br><br>
+<br><br><h3>关灯看手机伤眼不可逆 三个方法降低伤害→</h3><br>
+<p>世界人形机器人运动会400米田径预赛：天工机器人39.7秒第一<br><br> | 来源：<a>http://sh-kfly.com/index/8711985.html</a></p><br><br>
+<br><br><h3>以防长称土耳其意图在叙基地开展危及以国家安全的活动</h3><br>
+<p>普京称俄军加大对乌企业打击<br><br> | 来源：<a>http://www.shgkvc.cn/index/9411225.html</a></p><br><br>
+<br><br><h3>人形机器人AstraTennis 时刻：银河通用的263秒全自主决策</h3><br>
+<p>2026年度电影总票房超270亿！暑期档成绩亮眼刷新两项纪录<br><br> | 来源：<a>http://www.scfme.cn/index/4909431.html</a></p><br><br>
+<br><br><h3>2026科学智能大会在北京成功举办 为全球合作提供“中国方案”</h3><br>
+<p>粤西沿海风浪加剧 湛江边检转移8名遇险船员<br><br> | 来源：<a>http://www.inkwin.cn/index/7392047.html</a></p><br><br>
+<br><br><h3>中国队击败新西兰队 晋级U18男篮亚洲杯决赛</h3><br>
+<p>中国女排亚锦赛轻取伊拉克队 刷新单局最大分差<br><br> | 来源：<a>http://www.hid-arch.com/index/8049185.html</a></p><br><br>
+<br><br><h3>中国主题出版物及文创展在悉尼举行</h3><br>
+<p>2026年中国贵阳亚洲青年攀岩锦标赛 中国队包揽U17女子攀石前三<br><br> | 来源：<a>http://www.86169708.com/index/2460534.html</a></p><br><br>
+<br><br><h3>世界人形机器人运动会400米田径预赛：天工机器人39.7秒第一</h3><br>
+<p>宁夏长城非遗展览馆试运营<br><br> | 来源：<a>http://qdbk.ntcar.cn/index/5688131.html</a></p><br><br>
+<br><br><h3>日本本州岛5.8级地震已致多人受伤</h3><br>
+<p>福建启动防台风四级应急响应 平潭所有客渡船停航<br><br> | 来源：<a>http://gdzshqt.com/index/6616854.html</a></p><br><br>
+<br><br><h3>越南青年赴广西研学 感知中国科创活力</h3><br>
+<p>上海野生动物园大熊猫龙凤胎姐弟迎一周岁<br><br> | 来源：<a>http://www.shmiran.com/index/7385062.html</a></p><br><br>
+<br><br><h3>第二十一届宋庆龄少年儿童发明奖开放日在北京举办</h3><br>
+<p>以防长称土耳其意图在叙基地开展危及以国家安全的活动<br><br> | 来源：<a>http://www.cenchem.net/index/7997751.html</a></p><br><br>
+<br><br><h3>故宫出版社新书讲述18世纪西方人视角下的东西文化交流</h3><br>
+<p>中国主题出版物及文创展在悉尼举行<br><br> | 来源：<a>http://www.pfeiner.com.cn/index/1459216.html</a></p><br><br>
+<br><br><h3>世界人形机器人运动会北京开幕 上千台机器人亮相</h3><br>
+<p>第二十一届宋庆龄少年儿童发明奖开放日在北京举办<br><br> | 来源：<a>http://sh-ruiwu.com/index/9725095.html</a></p><br><br>
+<br><br><h3>黄金有罪？笑话！</h3><br>
+<p>黄金有罪？笑话！<br><br> | 来源：<a>http://wsx.hengyuit.com/index/1090365.html</a></p><br><br>
+<br><br><h3>越南青年赴广西研学 感知中国科创活力</h3><br>
+<p>2026科学智能大会在北京成功举办 为全球合作提供“中国方案”<br><br> | 来源：<a>http://www.wxhtg.cn/index/7930824.html</a></p><br><br>
+<br><br><h3>2026科学智能大会在北京成功举办 为全球合作提供“中国方案”</h3><br>
+<p>加拿大要求卡车关税豁免，致使贸易谈判陷入危机<br><br> | 来源：<a>http://zrcaipu.com/index/5688737.html</a></p><br><br>
+<br><br><h3>中国女排亚锦赛轻取伊拉克队 刷新单局最大分差</h3><br>
+<p>人工智能进课堂，如何学得更好<br><br> | 来源：<a>http://cn-o.com/index/3750564.html</a></p><br><br>
+<br><br><h3>粤西沿海风浪加剧 湛江边检转移8名遇险船员</h3><br>
+<p>福建启动防台风四级应急响应 平潭所有客渡船停航<br><br> | 来源：<a>http://www.wzjgxh.com/index/5360332.html</a></p><br><br>
+<br><br><h3>2026赛季中乙联赛：山西战平兰州进入冲甲组</h3><br>
+<p>学体联2026年全国中学生啦啦操锦标赛在云南昭通开赛<br><br> | 来源：<a>http://corues.cn/index/5445305.html</a></p><br><br>
+<br><br><h3>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会</h3><br>
+<p>最新研究：晚期肝癌患者先服药再手术或可得无瘤生存的机会<br><br> | 来源：<a>http://shqyee.com/index/2218761.html</a></p><br><br>
+<br><br><h3>关灯看手机伤眼不可逆 三个方法降低伤害→</h3><br>
+<p>上海野生动物园大熊猫龙凤胎姐弟迎一周岁<br><br> | 来源：<a>http://vanman.cn/index/9035525.html</a></p><br><br>
+<br><br><h3>（经济观察）算力也能“存”和“买” 中国探索“算力银行”“算力超市”</h3><br>
+<p>2026赛季中乙联赛：山西战平兰州进入冲甲组<br><br> | 来源：<a>http://pingdu.qdgxdq.com/index/6335537.html</a></p><br><br>
