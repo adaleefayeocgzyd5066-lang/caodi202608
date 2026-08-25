@@ -1,438 +1,438 @@
-<h1>卡尼等额反击特朗普 加拿大将对美国家具和钢铝征收50%的关税</h1>
-<p><strong>更新时间：</strong>2026年08月26日 01时56分05秒 (UTC+8)</p>
-<p>栏目：AI Builders Digest　主题：卡尼等额反击特朗普 加拿大将对美国家具和钢铝征收50%的关税</p>
+<h1>俄远东在建天然气化工项目火灾致死人数升至3人</h1>
+<p><strong>更新时间：</strong>2026年08月26日 06时50分28秒 (UTC+8)</p>
+<p>栏目：AI Builders Digest　主题：俄远东在建天然气化工项目火灾致死人数升至3人</p>
 <h2>摘要</h2>
-<p>加拿大总理马克·卡尼对美国总统唐纳德·特朗普周末宣布的新关税实施等额反击，并将对受贸易战加剧影响的本国企业提供支持。 渥太华将把对美国钢铝制品的现有反制关税提高一倍至50%。此外，美国制造的家具、服装和服饰，以及视频游戏机、智能手机和其它电子产品也将面临50%的新关税。 总体而言，这些报复性关税将影响每年约200亿美元的美国商品，与特朗普周六援引1930年《关税法》中一项从未动用过的条款对加拿大产品征收关税大致等额。这相当于加拿大去年从</p>
+<p>中新社莫斯科8月25日电 位于俄罗斯远东阿穆尔州的阿穆尔天然气化工综合体项目25日通报称，该项目当天发生的火灾事故导致的死亡人数升至3人，146人受伤。 据阿穆尔天然气化工综合体官网最新通报，目前确认事故已导致3人死亡，24名不同程度受伤者在当地医疗机构接受治疗，122名轻微伤者在现场接受了治疗，无需住院。阿穆尔州卫生部门迅速组织对伤者的医疗援助。 俄罗斯紧急情况部在社交媒体上表示，该部一架载有医学专家和现代化医疗设备的飞机已飞往阿穆尔</p>
 <h2>正文</h2>
-<p>加拿大总理马克·卡尼对美国总统唐纳德·特朗普周末宣布的新关税实施等额反击，并将对受贸易战加剧影响的本国企业提供支持。</p>
-<p>渥太华将把对美国钢铝制品的现有反制关税提高一倍至50%。</p>
-<p>此外，美国制造的家具、服装和服饰，以及视频游戏机、智能手机和其它电子产品也将面临50%的新关税。</p>
-<p>总体而言，这些报复性关税将影响每年约200亿美元的美国商品，与特朗普周六援引1930年《关税法》中一项从未动用过的条款对加拿大产品征收关税大致等额。</p>
-<p>这相当于加拿大去年从美国进口商品总额的约6%。</p>
-<p>新关税将于9月8日生效。</p>
-<p>家电、奶酪、鱼类、海鲜以及特定钢铝衍生品等其它美国商品将被征收25%的新关税。</p>
-<p>一系列美制机械、工业工具和农用设备将被征收15%的关税。</p>
-<p>加拿大政府还公布了一项75亿加元（折合54亿美元）的加拿大企业扶持计划，其中包括增加对部分现有项目的资金投入。</p>
-<p>新措施还涵盖了为中小企业提供流动性支持，向受美国关税影响的公司拨款以加快其提出的项目，以及延长受影响行业的就业保险计划并提高灵活性。</p>
+<p>中新社莫斯科8月25日电 位于俄罗斯远东阿穆尔州的阿穆尔天然气化工综合体项目25日通报称，该项目当天发生的火灾事故导致的死亡人数升至3人，146人受伤。</p>
+<p>据阿穆尔天然气化工综合体官网最新通报，目前确认事故已导致3人死亡，24名不同程度受伤者在当地医疗机构接受治疗，122名轻微伤者在现场接受了治疗，无需住院。</p>
+<p>阿穆尔州卫生部门迅速组织对伤者的医疗援助。</p>
+<p>俄罗斯紧急情况部在社交媒体上表示，该部一架载有医学专家和现代化医疗设备的飞机已飞往阿穆尔州。</p>
+<p>项目方表示，目前建筑工地的搜救行动仍在进行中。</p>
+<p>应急部门正在灭火，并对残留的工艺气体进行控制性燃烧。</p>
+<p>俄联邦消费者权益保护和公益监督局报告称，在对当地大气监测中暂未发现有害物质浓度超标。</p>
+<p>当地相关部门已成立调查委员会对火灾事故展开调查。</p>
+<p>据该项目官网介绍，阿穆尔天然气化工综合体是在建全球最大的聚乙烯和聚丙烯生产厂之一，其年产能将达到270万吨。</p>
+<p>(完)</p>
 <h2>内链</h2>
-<h3>20260826-01nwfnp7</h3>
-<p>特朗普称美国正在密切关注伊朗的“镐山”<br><br>来源：<a href="https://github.com/ero9esx-creator/fangchan202608/blob/main/20260826-01nwfnp7.md">https://github.com/ero9esx-creator/fangchan202608/blob/main/20260826-01nwfnp7.md</a></p>
-<h3>20260826-fbku9dok</h3>
-<p>【滔滔两岸潮】从台积电辞职到深圳创业 台湾“羽球少年”大陆圆梦<br><br>来源：<a href="https://github.com/mejiastanle/msdfe52gs/blob/main/20260826-fbku9dok.md">https://github.com/mejiastanle/msdfe52gs/blob/main/20260826-fbku9dok.md</a></p>
-<h3>20260826-vsovvsck</h3>
-<p>摩根士丹利：五大云巨头与英伟达等AI相关表外承诺超过3.1万亿美元<br><br>来源：<a href="https://github.com/asadw0454/2026chuntian/blob/main/20260826-vsovvsck.md">https://github.com/asadw0454/2026chuntian/blob/main/20260826-vsovvsck.md</a></p>
-<h3>20260826-5czvbwae</h3>
-<p>沪港数字合作成果丰硕 将深化数据标准对接<br><br>来源：<a href="https://github.com/kategeorgiaxtgxfl9771-lab/xinwen202608/blob/main/20260826-5czvbwae.md">https://github.com/kategeorgiaxtgxfl9771-lab/xinwen202608/blob/main/20260826-5czvbwae.md</a></p>
-<h3>20260826-fazmo7ls</h3>
-<p>拜登任内国家债务增加8万亿美元，位列第三大支出型总统，第一名你或许猜得到<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/yinyue202607/blob/main/20260826-fazmo7ls.md">https://github.com/ticeilohoiyoh-afk/yinyue202607/blob/main/20260826-fazmo7ls.md</a></p>
-<h3>20260826-xahs7phc</h3>
-<p>邓晓峰，40亿元重仓两大周期股<br><br>来源：<a href="https://github.com/dmwke4-ops/lvyou202608/blob/main/20260826-xahs7phc.md">https://github.com/dmwke4-ops/lvyou202608/blob/main/20260826-xahs7phc.md</a></p>
-<h3>20260826-d8hdazad</h3>
-<p>OpenAI称自研AI芯片测试表现超越英伟达GB300<br><br>来源：<a href="https://github.com/mejiastanle/20260718_06/blob/main/20260826-d8hdazad.md">https://github.com/mejiastanle/20260718_06/blob/main/20260826-d8hdazad.md</a></p>
-<h3>20260826-ms5vlahm</h3>
-<p>广东拥抱AI 助力流行音乐创作<br><br>来源：<a href="https://github.com/asadw0454/20260718_03/blob/main/20260826-ms5vlahm.md">https://github.com/asadw0454/20260718_03/blob/main/20260826-ms5vlahm.md</a></p>
-<h3>20260826-26h95fdq</h3>
-<p>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”<br><br>来源：<a href="https://github.com/joannaaarnamjvstl1553-ship-it/ziran202608/blob/main/20260826-26h95fdq.md">https://github.com/joannaaarnamjvstl1553-ship-it/ziran202608/blob/main/20260826-26h95fdq.md</a></p>
-<h3>20260826-daqbb5gp</h3>
-<p>迪克体育二季度业绩低于预期，下调全年指引，盘前大跌<br><br>来源：<a href="https://github.com/stellakhaleesikpzujq5409-blip/xinwen202608/blob/main/20260826-daqbb5gp.md">https://github.com/stellakhaleesikpzujq5409-blip/xinwen202608/blob/main/20260826-daqbb5gp.md</a></p>
-<h3>20260812-lw8vu7sg</h3>
-<p>美国8月消费者信心下降 对商业和就业前景看法恶化<br><br>来源：<a href="https://github.com/theahayleendnoqd6760-ux/yinyue202608/blob/main/20260812-lw8vu7sg.md">https://github.com/theahayleendnoqd6760-ux/yinyue202608/blob/main/20260812-lw8vu7sg.md</a></p>
-<h3>20260811-8cejvckq</h3>
-<p>西藏山南贡嘎县赛马暨文化旅游活动启幕<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/caodi202607/blob/main/20260811-8cejvckq.md">https://github.com/ticeilohoiyoh-afk/caodi202607/blob/main/20260811-8cejvckq.md</a></p>
-<h3>1816_962</h3>
-<p>欧洲债市：多个期限的欧债收益率跌至逾一周低位 受油价下跌影响<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/shenghuo202607/blob/main/1816_962.md">https://github.com/ticeilohoiyoh-afk/shenghuo202607/blob/main/1816_962.md</a></p>
-<h3>20260808-68wl2rlt</h3>
-<p>美国消费者信心降至七个月低点 对营商环境和就业前景看法恶化<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/yinyue202607/blob/main/20260808-68wl2rlt.md">https://github.com/ticeilohoiyoh-afk/yinyue202607/blob/main/20260808-68wl2rlt.md</a></p>
-<h3>0521_010</h3>
-<p>2026年度电影总票房突破275亿！《欢迎来龙餐馆》公布全球上映计划<br><br>来源：<a href="https://github.com/9w79h87-cmd/caijing202608/blob/main/0521_010.md">https://github.com/9w79h87-cmd/caijing202608/blob/main/0521_010.md</a></p>
-<h3>20260810-bdqpmu73</h3>
-<p>摩根士丹利：五大云巨头与英伟达等AI相关表外承诺超过3.1万亿美元<br><br>来源：<a href="https://github.com/9w79h87-cmd/dianying202608/blob/main/20260810-bdqpmu73.md">https://github.com/9w79h87-cmd/dianying202608/blob/main/20260810-bdqpmu73.md</a></p>
-<h3>20260815-5v4ukhxx</h3>
-<p>马丁马里埃塔完成对Lhoist北美业务交割，成为美国领先石灰石产品生产商<br><br>来源：<a href="https://github.com/9w79h87-cmd/guangming202608/blob/main/20260815-5v4ukhxx.md">https://github.com/9w79h87-cmd/guangming202608/blob/main/20260815-5v4ukhxx.md</a></p>
-<h3>20260821-0mznqnt6</h3>
-<p>广东拥抱AI 助力流行音乐创作<br><br>来源：<a href="https://github.com/9w79h87-cmd/jiaoyu202608/blob/main/20260821-0mznqnt6.md">https://github.com/9w79h87-cmd/jiaoyu202608/blob/main/20260821-0mznqnt6.md</a></p>
-<h3>20260801_qa3rl</h3>
-<p>中印边界问题特别代表在北京举行会晤<br><br>来源：<a href="https://github.com/9w79h87-cmd/meishi202608/blob/main/20260801_qa3rl.md">https://github.com/9w79h87-cmd/meishi202608/blob/main/20260801_qa3rl.md</a></p>
-<h3>20260810-jcrbv1qo</h3>
-<p>美军机降落莫斯科？克宫回应<br><br>来源：<a href="https://github.com/9w79h87-cmd/shenghuo202608/blob/main/20260810-jcrbv1qo.md">https://github.com/9w79h87-cmd/shenghuo202608/blob/main/20260810-jcrbv1qo.md</a></p>
-<h3>20260815-5xwvns40</h3>
-<p>一名在韩失踪中国公民遇害 嫌疑人已被捕<br><br>来源：<a href="https://github.com/9w79h87-cmd/tiyu202608/blob/main/20260815-5xwvns40.md">https://github.com/9w79h87-cmd/tiyu202608/blob/main/20260815-5xwvns40.md</a></p>
-<h3>20260821-0lcfodie</h3>
-<p>马龙邀请台湾青年“登陆”：“大陆适合每一位热爱运动的年轻人”<br><br>来源：<a href="https://github.com/9w79h87-cmd/xinwen202608/blob/main/20260821-0lcfodie.md">https://github.com/9w79h87-cmd/xinwen202608/blob/main/20260821-0lcfodie.md</a></p>
-<h3>20260801_k3i4c</h3>
-<p>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”<br><br>来源：<a href="https://github.com/9w79h87-cmd/yule202608/blob/main/20260801_k3i4c.md">https://github.com/9w79h87-cmd/yule202608/blob/main/20260801_k3i4c.md</a></p>
-<h3>20260817-a20je0xs</h3>
-<p>卡尼等额反击特朗普 加拿大将对美国家具和钢铝征收50%的关税<br><br>来源：<a href="https://github.com/adelinafreyjatlhgja6901-tech/caodi202608/blob/main/20260817-a20je0xs.md">https://github.com/adelinafreyjatlhgja6901-tech/caodi202608/blob/main/20260817-a20je0xs.md</a></p>
-<h3>20260810-weuq6wxl</h3>
-<p>一名在韩失踪中国公民遇害 嫌疑人已被捕<br><br>来源：<a href="https://github.com/adelinafreyjatlhgja6901-tech/shenghuo202608/blob/main/20260810-weuq6wxl.md">https://github.com/adelinafreyjatlhgja6901-tech/shenghuo202608/blob/main/20260810-weuq6wxl.md</a></p>
-<h3>20260803_clt7u</h3>
-<p>明起停牌！002274，拟易主<br><br>来源：<a href="https://github.com/adelinafreyjatlhgja6901-tech/yinyue202608/blob/main/20260803_clt7u.md">https://github.com/adelinafreyjatlhgja6901-tech/yinyue202608/blob/main/20260803_clt7u.md</a></p>
-<h3>20260822-q07g06pa</h3>
-<p>美国8月消费者信心下降 对商业和就业前景看法恶化<br><br>来源：<a href="https://github.com/adelynmikaelakcgnmt0762-spec/caodi202608/blob/main/20260822-q07g06pa.md">https://github.com/adelynmikaelakcgnmt0762-spec/caodi202608/blob/main/20260822-q07g06pa.md</a></p>
-<h3>20260816-tfajmn7z</h3>
-<p>马龙邀请台湾青年“登陆”：“大陆适合每一位热爱运动的年轻人”<br><br>来源：<a href="https://github.com/adelynmikaelakcgnmt0762-spec/shenghuo202608/blob/main/20260816-tfajmn7z.md">https://github.com/adelynmikaelakcgnmt0762-spec/shenghuo202608/blob/main/20260816-tfajmn7z.md</a></p>
-<h3>20260810-qalkugr1</h3>
-<p>Anthropic或将向投资者披露，潜在市场收入规模超30万亿美元<br><br>来源：<a href="https://github.com/adelynmikaelakcgnmt0762-spec/yinyue202608/blob/main/20260810-qalkugr1.md">https://github.com/adelynmikaelakcgnmt0762-spec/yinyue202608/blob/main/20260810-qalkugr1.md</a></p>
-<h3>20260802_v3mjg</h3>
-<p>OpenAI称自研AI芯片测试表现超越英伟达GB300<br><br>来源：<a href="https://github.com/adleycatalinawxxnqj0188-byte/guangming202608/blob/main/20260802_v3mjg.md">https://github.com/adleycatalinawxxnqj0188-byte/guangming202608/blob/main/20260802_v3mjg.md</a></p>
+<h3>20260826-005f4045</h3>
+<p>摩根士丹利：五大云巨头与英伟达等AI相关表外承诺超过3.1万亿美元<br><br>来源：<a href="https://github.com/ramonaviviansbkhfb9905-create/caodi202608/blob/main/20260826-005f4045.md">https://github.com/ramonaviviansbkhfb9905-create/caodi202608/blob/main/20260826-005f4045.md</a></p>
+<h3>20260826-bsrgs2mg</h3>
+<p>贝森特导师带头质疑：贝森特的债券操作终将失败<br><br>来源：<a href="https://github.com/bernettcoia/20260718_02/blob/main/20260826-bsrgs2mg.md">https://github.com/bernettcoia/20260718_02/blob/main/20260826-bsrgs2mg.md</a></p>
+<h3>20260826-ttev7lvk</h3>
+<p>OpenAI称自研AI芯片测试表现超越英伟达GB300<br><br>来源：<a href="https://github.com/linhh234/20260718_06/blob/main/20260826-ttev7lvk.md">https://github.com/linhh234/20260718_06/blob/main/20260826-ttev7lvk.md</a></p>
+<h3>20260826-3gbloavc</h3>
+<p>美军机降落莫斯科？克宫回应<br><br>来源：<a href="https://github.com/adelynmikaelakcgnmt0762-spec/ziran202608/blob/main/20260826-3gbloavc.md">https://github.com/adelynmikaelakcgnmt0762-spec/ziran202608/blob/main/20260826-3gbloavc.md</a></p>
+<h3>20260826-i9x01qhn</h3>
+<p>伊朗和阿曼外长讨论霍尔木兹航运问题 拟议框架包括建立海上走廊<br><br>来源：<a href="https://github.com/helenaddysonkahuuj0793-create/xinwen202608/blob/main/20260826-i9x01qhn.md">https://github.com/helenaddysonkahuuj0793-create/xinwen202608/blob/main/20260826-i9x01qhn.md</a></p>
+<h3>20260826-w7yul2gi</h3>
+<p>8月26日美股收盘：三大股指普涨 英伟达涨超2%<br><br>来源：<a href="https://github.com/nadialylaouliba3944-blip/guangming202608/blob/main/20260826-w7yul2gi.md">https://github.com/nadialylaouliba3944-blip/guangming202608/blob/main/20260826-w7yul2gi.md</a></p>
+<h3>20260826-bs7xtr9j</h3>
+<p>Anthropic或将向投资者披露，潜在市场收入规模超30万亿美元<br><br>来源：<a href="https://github.com/bdor2v-code/keji202608/blob/main/20260826-bs7xtr9j.md">https://github.com/bdor2v-code/keji202608/blob/main/20260826-bs7xtr9j.md</a></p>
+<h3>20260826-nmsrxwzs</h3>
+<p>新疆阿勒泰加快打造中国高纯石英产业新高地<br><br>来源：<a href="https://github.com/lindsayawren-sys/20260718_12/blob/main/20260826-nmsrxwzs.md">https://github.com/lindsayawren-sys/20260718_12/blob/main/20260826-nmsrxwzs.md</a></p>
+<h3>20260826-0sl0yjdp</h3>
+<p>沪港数字合作成果丰硕 将深化数据标准对接<br><br>来源：<a href="https://github.com/adelinafreyjatlhgja6901-tech/guangming202608/blob/main/20260826-0sl0yjdp.md">https://github.com/adelinafreyjatlhgja6901-tech/guangming202608/blob/main/20260826-0sl0yjdp.md</a></p>
+<h3>20260826-f5zgmhf3</h3>
+<p>美军机降落莫斯科？克宫回应<br><br>来源：<a href="https://github.com/ero9esx-creator/ziran202608/blob/main/20260826-f5zgmhf3.md">https://github.com/ero9esx-creator/ziran202608/blob/main/20260826-f5zgmhf3.md</a></p>
+<h3>20260718_9l2qe</h3>
+<p>美国8月消费者信心指数降至7个月来最低值<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/caodi202607/blob/main/20260718_9l2qe.md">https://github.com/ticeilohoiyoh-afk/caodi202607/blob/main/20260718_9l2qe.md</a></p>
+<h3>20260810-hqtoawnu</h3>
+<p>美国消费者信心降至七个月低点 对营商环境和就业前景看法恶化<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/guangming202607/blob/main/20260810-hqtoawnu.md">https://github.com/ticeilohoiyoh-afk/guangming202607/blob/main/20260810-hqtoawnu.md</a></p>
+<h3>1716_964</h3>
+<p>伊朗和阿曼讨论霍尔木兹海峡航运 拟设“临时联合海上走廊”<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/yinyue202607/blob/main/1716_964.md">https://github.com/ticeilohoiyoh-afk/yinyue202607/blob/main/1716_964.md</a></p>
+<h3>20260807-9brzo9ec</h3>
+<p>比特币一度突破81000美元，ETF资金流入助推加密货币反弹加速<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/ziran202607/blob/main/20260807-9brzo9ec.md">https://github.com/ticeilohoiyoh-afk/ziran202607/blob/main/20260807-9brzo9ec.md</a></p>
+<h3>20260814-ix40saxk</h3>
+<p>加拿大报复清单：覆盖逾700种美国商品 关税从15%到50%<br><br>来源：<a href="https://github.com/9w79h87-cmd/caodi202608/blob/main/20260814-ix40saxk.md">https://github.com/9w79h87-cmd/caodi202608/blob/main/20260814-ix40saxk.md</a></p>
+<h3>20260819-qcka50hy</h3>
+<p>古巴谴责美国延长对古实施经济封锁<br><br>来源：<a href="https://github.com/9w79h87-cmd/fangchan202608/blob/main/20260819-qcka50hy.md">https://github.com/9w79h87-cmd/fangchan202608/blob/main/20260819-qcka50hy.md</a></p>
+<h3>20260825-t51y4hpi</h3>
+<p>伊朗和阿曼讨论霍尔木兹海峡航运 拟设“临时联合海上走廊”<br><br>来源：<a href="https://github.com/9w79h87-cmd/jiankang202608/blob/main/20260825-t51y4hpi.md">https://github.com/9w79h87-cmd/jiankang202608/blob/main/20260825-t51y4hpi.md</a></p>
+<h3>20260808-ov8vhmcj</h3>
+<p>卡尼等额反击特朗普 加拿大将对美国家具和钢铝征收50%的关税<br><br>来源：<a href="https://github.com/9w79h87-cmd/lvyou202608/blob/main/20260808-ov8vhmcj.md">https://github.com/9w79h87-cmd/lvyou202608/blob/main/20260808-ov8vhmcj.md</a></p>
+<h3>20260814-0o8cdqnc</h3>
+<p>湄公河水位上涨致柬埔寨四省逾1.8万户家庭受灾<br><br>来源：<a href="https://github.com/9w79h87-cmd/qiche202608/blob/main/20260814-0o8cdqnc.md">https://github.com/9w79h87-cmd/qiche202608/blob/main/20260814-0o8cdqnc.md</a></p>
+<h3>20260818-0sihiyrr</h3>
+<p>美军机降落莫斯科？克宫回应<br><br>来源：<a href="https://github.com/9w79h87-cmd/shishang202608/blob/main/20260818-0sihiyrr.md">https://github.com/9w79h87-cmd/shishang202608/blob/main/20260818-0sihiyrr.md</a></p>
+<h3>20260824-18yzdlrg</h3>
+<p>8月26日热门中概股多数上涨 网易涨超4% 富途涨超8%<br><br>来源：<a href="https://github.com/9w79h87-cmd/wenhua202608/blob/main/20260824-18yzdlrg.md">https://github.com/9w79h87-cmd/wenhua202608/blob/main/20260824-18yzdlrg.md</a></p>
+<h3>20260807-ajpgyho7</h3>
+<p>波士顿联储行长称维持利率不变取决于通胀改善<br><br>来源：<a href="https://github.com/9w79h87-cmd/youxi202608/blob/main/20260807-ajpgyho7.md">https://github.com/9w79h87-cmd/youxi202608/blob/main/20260807-ajpgyho7.md</a></p>
+<h3>20260813-0oc0sn8j</h3>
+<p>古巴谴责美国延长对古实施经济封锁<br><br>来源：<a href="https://github.com/9w79h87-cmd/ziran202608/blob/main/20260813-0oc0sn8j.md">https://github.com/9w79h87-cmd/ziran202608/blob/main/20260813-0oc0sn8j.md</a></p>
+<h3>20260806-m938dg1t</h3>
+<p>加拿大宣布对美国商品征收报复性关税<br><br>来源：<a href="https://github.com/adelinafreyjatlhgja6901-tech/keji202608/blob/main/20260806-m938dg1t.md">https://github.com/adelinafreyjatlhgja6901-tech/keji202608/blob/main/20260806-m938dg1t.md</a></p>
+<h3>20260823-gv69k8al</h3>
+<p>加拿大宣布对价值约200亿美元的美国商品征收报复性关税<br><br>来源：<a href="https://github.com/adelinafreyjatlhgja6901-tech/wenhua202608/blob/main/20260823-gv69k8al.md">https://github.com/adelinafreyjatlhgja6901-tech/wenhua202608/blob/main/20260823-gv69k8al.md</a></p>
+<h3>20260817-2qtl0ax1</h3>
+<p>美国消费者信心降至七个月低点 对营商环境和就业前景看法恶化<br><br>来源：<a href="https://github.com/adelinafreyjatlhgja6901-tech/ziran202608/blob/main/20260817-2qtl0ax1.md">https://github.com/adelinafreyjatlhgja6901-tech/ziran202608/blob/main/20260817-2qtl0ax1.md</a></p>
+<h3>20260810-8ps6xeqo</h3>
+<p>卡尼等额反击特朗普 加拿大将对美国家具和钢铝征收50%的关税<br><br>来源：<a href="https://github.com/adelynmikaelakcgnmt0762-spec/keji202608/blob/main/20260810-8ps6xeqo.md">https://github.com/adelynmikaelakcgnmt0762-spec/keji202608/blob/main/20260810-8ps6xeqo.md</a></p>
+<h3>20260801_43n8q</h3>
+<p>新疆阿勒泰加快打造中国高纯石英产业新高地<br><br>来源：<a href="https://github.com/adelynmikaelakcgnmt0762-spec/xinwen202608/blob/main/20260801_43n8q.md">https://github.com/adelynmikaelakcgnmt0762-spec/xinwen202608/blob/main/20260801_43n8q.md</a></p>
+<h3>20260821-88ivhl5w</h3>
+<p>伊朗与卡塔尔外长通话 商讨防止地区局势升级<br><br>来源：<a href="https://github.com/adelynmikaelakcgnmt0762-spec/ziran202608/blob/main/20260821-88ivhl5w.md">https://github.com/adelynmikaelakcgnmt0762-spec/ziran202608/blob/main/20260821-88ivhl5w.md</a></p>
+<h3>20260813-o76ihnrp</h3>
+<p>比特币一度突破81000美元，ETF资金流入助推加密货币反弹加速<br><br>来源：<a href="https://github.com/adleycatalinawxxnqj0188-byte/keji202608/blob/main/20260813-o76ihnrp.md">https://github.com/adleycatalinawxxnqj0188-byte/keji202608/blob/main/20260813-o76ihnrp.md</a></p>
 <h2>外链</h2>
-<h3>软件板块相对芯片板块走出创纪录强势行情</h3>
-http://www.lzjchina.com/index/4968825.html<br>
-<h3>摩根士丹利：五大云巨头与英伟达等AI相关表外承诺超过3.1万亿美元</h3>
-http://www.huikaishun.com/index/2818633.html<br>
+<h3>广西龙州多个村落成“孤岛” 救援人员水陆多轮接力紧急送物资</h3>
+http://www.chinaweish.com/index/48549724.sHtML<br>
+<h3>美国2年期国债拍卖结果连续第四个月表现出色 中标收益率4.204%</h3>
+http://jingan.mq163.net/index/3481615.html<br>
 <h3>美国消费者信心降至七个月低点 对营商环境和就业前景看法恶化</h3>
-http://www.yunchengguoji.com/index/7051047.html<br>
+http://sdstron.com/index/1909778.html<br>
+<h3>美国民主党议员对沃什推动减少议息会议次数表示关切</h3>
+http://sindee.cn/index/6529384.html<br>
+<h3>伊朗与卡塔尔外长通话 商讨防止地区局势升级</h3>
+http://shhkyjs.com/index/2720261.html<br>
+<h3>美国8月消费者信心指数降至7个月来最低值</h3>
+http://www.longy520.com/index/08106411.sHtML<br>
 <h3>拜登任内国家债务增加8万亿美元，位列第三大支出型总统，第一名你或许猜得到</h3>
-http://www.mskeji.com.cn/index/9255611.html<br>
-<h3>加拿大宣布对美国商品征收报复性关税</h3>
-http://intknife.com/index/4784202.html<br>
-<h3>苹果发布升级版Mac mini和Mac Studio 为新款iPhone预热</h3>
-http://www.qslv.net/index/0723107.html<br>
-<h3>第十一届APEC粮食安全部长级会议在浙江杭州举行</h3>
-http://aliexpress.cbechero.net/index/0900719.html<br>
-<h3>马丁马里埃塔完成对Lhoist北美业务交割，成为美国领先石灰石产品生产商</h3>
-http://longpaiseed.com/index/1024264.html<br>
-<h3>广西9条河流超警 左江崇左水文站超警7.59米</h3>
-http://tvpusher.com/index/7118335.html<br>
-<h3>苹果发布升级版Mac mini和Mac Studio 为新款iPhone预热</h3>
-http://www.tungsten-molybdenum.net.cn/index/8036436.html<br>
-<h3>广东拥抱AI 助力流行音乐创作</h3>
-http://www.chggb.com/index/3818700.html<br>
-<h3>Anthropic或将向投资者披露，潜在市场收入规模超30万亿美元</h3>
-http://qingdao.seohaosou.cn/index/6765270.html<br>
-<h3>波士顿联储行长称维持利率不变取决于通胀改善</h3>
-http://www.quelongmotor.com/index/6758411.html<br>
-<h3>苹果发布升级版Mac mini和Mac Studio 为新款iPhone预热</h3>
-http://www.sincere-china.com.cn/index/0586956.html<br>
-<h3>邓晓峰，40亿元重仓两大周期股</h3>
-http://www.qdgxdq.com/index/0980239.html<br>
-<h3>广西9条河流超警 左江崇左水文站超警7.59米</h3>
-http://www.ntcar.cn/index/6980850.html<br>
-<h3>2026年度电影总票房突破275亿！《欢迎来龙餐馆》公布全球上映计划</h3>
-http://www.xxhcom.cn/index/7715626.html<br>
-<h3>搭载华为乾崑智驾与专属越野底盘 北京越野泰钽700售价24.98万元起</h3>
-http://def-online.com.cn/index/7479745.html<br>
-<h3>广东拥抱AI 助力流行音乐创作</h3>
-http://chinaris.cn/index/2350243.html<br>
-<h3>广东拥抱AI 助力流行音乐创作</h3>
-http://scfme.cn/index/3734619.html<br>
-<h3>广东拥抱AI 助力流行音乐创作</h3>
-http://bao-mei.cn/index/0453838.html<br>
-<h3>俄远东一在建天然气化工项目发生火灾致1人死亡百余人受伤</h3>
-http://www.u-coat.cn/index/0394784.html<br>
-<h3>通胀担忧降温，资金轮动涌入科技股</h3>
-http://sync.ytone.com.cn/index/5936464.html<br>
-<h3>马丁马里埃塔完成对Lhoist北美业务交割，成为美国领先石灰石产品生产商</h3>
-http://www.mskeji.com.cn/index/4866961.html<br>
-<h3>加拿大宣布对美国商品征收报复性关税</h3>
-http://www.qilongpaper.com/index/4264500.html<br>
-<h3>中印边界问题特别代表在北京举行会晤</h3>
-http://kilometerxinli.com/index/6125325.html<br>
-<h3>通胀担忧降温，资金轮动涌入科技股</h3>
-http://xuhui.mq163.net/index/9908641.html<br>
-<h3>纪念红军长征胜利90周年 百余名港澳青年于都重走长征路</h3>
-http://www.w312.com/index/34444969.sHtML<br>
-<h3>特朗普称美国正在密切关注伊朗的“镐山”</h3>
-http://www.acesolutions.com.cn/index/2888207.html<br>
-<h3>广东拥抱AI 助力流行音乐创作</h3>
-http://qizichina.com/index/9371548.html<br>
-<h3>马龙邀请台湾青年“登陆”：“大陆适合每一位热爱运动的年轻人”</h3>
-http://016.360webs.cn/index/0165391.html<br>
-<h3>《富爸爸穷爸爸》作者警告持有这类“虚假资产”的人将会变穷</h3>
-http://www.acesolutions.com.cn/index/7851133.html<br>
-<h3>美国7月新屋销售降至六个月低点 抵押贷款利率高企抑制需求</h3>
-http://jszjbafw.com/index/4519499.html<br>
-<h3>FDA核准罗氏与礼来pTau217血液检测，同一阈值同时用于纳入和排除淀粉样病理</h3>
-http://www.xiaoxiaomir.com/index/7468734.html<br>
-<h3>中印边界问题特别代表在北京举行会晤</h3>
-http://hanvey.hk/index/5552380.html<br>
-<h3>美国7月新屋销售降至六个月低点 抵押贷款利率高企抑制需求</h3>
-http://www.nhjsy.com/index/0735310.html<br>
-<h3>波士顿联储行长称维持利率不变取决于通胀改善</h3>
-http://www.sincere-china.com.cn/index/5265641.html<br>
-<h3>湖北形成“海陆空多向联动”的国际物流格局</h3>
-http://www.quelongmotor.com/index/9925241.html<br>
-<h3>百只人工繁育绿海龟在广东惠东放归大海</h3>
-http://wuxihaotong.cn/index/3512251.html<br>
-<h3>马来西亚热浪来袭 多地发布高温警报</h3>
-http://luoxuehui.cn/index/4682225.html<br>
-<h3>南宁海事局使用重载无人机成功救助3艘遇险船舶</h3>
-http://hongkou.mq163.net/index/8837629.html<br>
-<h3>广西9条河流超警 左江崇左水文站超警7.59米</h3>
-http://www.wxch.cc/index/5077397.html<br>
-<h3>加拿大宣布对美国商品征收报复性关税</h3>
-http://yyhjzfp.zhonghetc.com/index/0186577.html<br>
-<h3>沪港数字合作成果丰硕 将深化数据标准对接</h3>
-http://www.luancolor.com/index/8289581.html<br>
-<h3>中印边界问题特别代表在北京举行会晤</h3>
-http://www.kleshuo.com/index/5597463.html<br>
-<h3>波士顿联储行长称维持利率不变取决于通胀改善</h3>
-http://www.liyikj.com/index/7362439.html<br>
-<h3>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”</h3>
-http://www.xinkaishun.com/index/3214934.html<br>
-<h3>第十一届APEC粮食安全部长级会议在浙江杭州举行</h3>
-http://www.aiyounuo.net/index/7072131.html<br>
-<h3>德国二季度GDP环比增速上调至0.3%</h3>
-http://www.huangpuhui.com.cn/index/0038215.html<br>
-<h3>通胀担忧降温，资金轮动涌入科技股</h3>
-http://www.wuxibaomei.com/index/2452837.html<br>
-<h3>广东拥抱AI 助力流行音乐创作</h3>
-http://lcbajt.com/index/1458515.html<br>
-<h3>美联航宣布史上最大国际扩张：2027年新开10城，纽瓦克担主场</h3>
-http://changyun688.com/index/9699871.html<br>
-<h3>马丁马里埃塔完成对Lhoist北美业务交割，成为美国领先石灰石产品生产商</h3>
-http://www.31260939.com/index/3506560.html<br>
-<h3>湖北形成“海陆空多向联动”的国际物流格局</h3>
-http://rywlnet.com/index/6310283.html<br>
-<h3>中印边界问题特别代表在北京举行会晤</h3>
-http://www.rywlnet.com/index/4069336.html<br>
-<h3>中印边界问题特别代表在北京举行会晤</h3>
-http://pingdu.qdgxdq.com/index/8617265.html<br>
-<h3>美国中情局局长John Ratcliffe据悉突然造访莫斯科</h3>
-http://www.hntggjg.cn/index/6196900.html<br>
-<h3>FDA核准罗氏与礼来pTau217血液检测，同一阈值同时用于纳入和排除淀粉样病理</h3>
-http://1010cq.com/index/6619681.html<br>
-<h3>中印边界问题特别代表在北京举行会晤</h3>
-http://31260939.com/index/7946444.html<br>
-<h3>加拿大报复清单：覆盖逾700种美国商品 关税从15%到50%</h3>
-http://jdks.kleshuo.com/index/0855212.html<br>
-<h3>特朗普称美国正在密切关注伊朗的“镐山”</h3>
-http://www.shlcpump.com/index/7241642.html<br>
-<h3>《富爸爸穷爸爸》作者警告持有这类“虚假资产”的人将会变穷</h3>
-http://www.hntggjg.cn/index/1264607.html<br>
-<h3>2026年度电影总票房突破275亿！《欢迎来龙餐馆》公布全球上映计划</h3>
-http://www.hndczn.com/index/4216226.html<br>
-<h3>沪港数字合作成果丰硕 将深化数据标准对接</h3>
-http://ol.nju-ys.com/index/4107818.html<br>
-<h3>马丁马里埃塔完成对Lhoist北美业务交割，成为美国领先石灰石产品生产商</h3>
-http://www.socomecair.com/index/5472749.html<br>
-<h3>南宁海事局使用重载无人机成功救助3艘遇险船舶</h3>
-http://www.xinkaishun.com/index/8999938.html<br>
-<h3>明起停牌！002274，拟易主</h3>
-http://www.wxruyue.com/index/0464804.html<br>
-<h3>迪克体育二季度业绩低于预期，下调全年指引，盘前大跌</h3>
-http://www.yingjiang-hk.com/index/9847350.html<br>
-<h3>苹果发布升级版Mac mini和Mac Studio 为新款iPhone预热</h3>
-http://www.soutugo.com/index/8687170.html<br>
-<h3>第十一届APEC粮食安全部长级会议在浙江杭州举行</h3>
-http://fbgjc.com/index/4869115.html<br>
-<h3>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”</h3>
-http://www.rongbeish.com/index/0801897.html<br>
-<h3>加拿大宣布对美国商品征收报复性关税</h3>
-http://www.materialhandling.cn/index/5607617.html<br>
-<h3>【活力中国调研行】鲁北小城“智造”全球三成商用健身器材</h3>
-http://shlidiao.com/index/5211098.html<br>
-<h3>美国中情局局长John Ratcliffe据悉突然造访莫斯科</h3>
-http://jlhs.cn/index/5958133.html<br>
-<h3>德国二季度GDP环比增速上调至0.3%</h3>
-http://www.mskeji.com.cn/index/5710671.html<br>
-<h3>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”</h3>
-http://www.seohaosou.cn/index/7219438.html<br>
-<h3>广东拥抱AI 助力流行音乐创作</h3>
-http://www.poprivet.cn/index/8248992.html<br>
-<h3>OpenAI称自研AI芯片测试表现超越英伟达GB300</h3>
-http://huidirobot.com/index/7189609.html<br>
-<h3>沪港数字合作成果丰硕 将深化数据标准对接</h3>
-http://www.collect-as.com/index/0303238.html<br>
-<h3>欧洲债市：多个期限的欧债收益率跌至逾一周低位 受油价下跌影响</h3>
-http://tungsten-molybdenum.net/index/8804547.html<br>
-<h3>拜登任内国家债务增加8万亿美元，位列第三大支出型总统，第一名你或许猜得到</h3>
-http://yyhjzfp.zhonghetc.com/index/3171728.html<br>
-<h3>一名在韩失踪中国公民遇害 嫌疑人已被捕</h3>
-http://www.gdamg.com/index/5421382.html<br>
-<h3>【滔滔两岸潮】从台积电辞职到深圳创业 台湾“羽球少年”大陆圆梦</h3>
-http://www.tungsten-molybdenum.net/index/9467309.html<br>
-<h3>第十一届APEC粮食安全部长级会议在浙江杭州举行</h3>
-http://www.lzjchina.com/index/5654105.html<br>
-<h3>苹果发布升级版Mac mini和Mac Studio 为新款iPhone预热</h3>
-http://wsx.hengyuit.com/index/9347703.html<br>
-<h3>拜登任内国家债务增加8万亿美元，位列第三大支出型总统，第一名你或许猜得到</h3>
-http://wxhaotong.cn/index/6740812.html<br>
-<h3>马斯克称SpaceX轨道数据中心发射时间提前至2027年</h3>
-http://www.en-cd.com/index/2804180.html<br>
-<h3>纪念红军长征胜利90周年 百余名港澳青年于都重走长征路</h3>
-http://collect-as.com/index/8244878.html<br>
-<h3>美国8月消费者信心下降 对商业和就业前景看法恶化</h3>
-http://www.rongbeish.com/index/9599453.html<br>
-<h3>德国二季度GDP环比增速上调至0.3%</h3>
-http://www.pmipneumatic.com/index/5989373.html<br>
-<h3>摩根士丹利：五大云巨头与英伟达等AI相关表外承诺超过3.1万亿美元</h3>
-http://www.yifafs.com/index/3411517.html<br>
-<h3>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”</h3>
-http://tungsten-molybdenum.com.cn/index/2091101.html<br>
+http://www.wxhtg.cn/index/5716127.html<br>
 <h3>美国消费者信心降至七个月低点 对营商环境和就业前景看法恶化</h3>
-http://new-arc.net/index/8266294.html<br>
-<h3>邓晓峰，40亿元重仓两大周期股</h3>
-http://luxuryliving.cn/index/1802318.html<br>
-<h3>美国8月消费者信心下降 对商业和就业前景看法恶化</h3>
-http://liyikj.com/index/3013455.html<br>
-<h3>美国7月新屋销售降至六个月低点 抵押贷款利率高企抑制需求</h3>
-http://materialhandling.cn/index/0479428.html<br>
-<h3>百只人工繁育绿海龟在广东惠东放归大海</h3>
-http://www.zyoud.cn/index/2448472.html<br>
-<h3>明起停牌！002274，拟易主</h3>
-http://hrhuizhong.com/index/2800994.html<br>
+http://avidamusictech.com/index/5429101.html<br>
+<h3>欧洲股市震荡上行 油价回落提振市场人气</h3>
+http://jkdz.ntcar.cn/index/3474624.html<br>
+<h3>美国消费者信心降至七个月低点 对营商环境和就业前景看法恶化</h3>
+http://webtest01.mq163.net/index/2884371.html<br>
+<h3>特朗普称美国正在密切关注伊朗的“镐山”</h3>
+http://meibaolong.com.cn/index/3007147.html<br>
+<h3>加拿大宣布对价值约200亿美元的美国商品征收报复性关税</h3>
+http://www.znycs.cn/index/5703717.html<br>
 <h3>美军机降落莫斯科？克宫回应</h3>
-http://www.haimite.net/index/2178552.html<br>
-<h3>百只人工繁育绿海龟在广东惠东放归大海</h3>
-http://www.sh-lanyuan.com/index/1213104.html<br>
-<h3>俄远东一在建天然气化工项目发生火灾致1人死亡百余人受伤</h3>
-http://tungsten-molybdenum.com.cn/index/3341465.html<br>
-<h3>西藏山南贡嘎县赛马暨文化旅游活动启幕</h3>
-http://www.putube.net/index/1326782.html<br>
-<h3>马丁马里埃塔完成对Lhoist北美业务交割，成为美国领先石灰石产品生产商</h3>
-http://wx.fzbsggljt.com/index/1479733.html<br>
-<h3>【活力中国调研行】鲁北小城“智造”全球三成商用健身器材</h3>
-http://wap.sinosec.com.cn/index/9758237.html<br>
-<h3>苹果发布升级版Mac mini和Mac Studio 为新款iPhone预热</h3>
-http://ops.fzbsggljt.com/index/2807114.html<br>
-<h3>2026年度电影总票房突破275亿！《欢迎来龙餐馆》公布全球上映计划</h3>
-http://www.toimage.com/index/6974723.html<br>
-<h3>FDA核准罗氏与礼来pTau217血液检测，同一阈值同时用于纳入和排除淀粉样病理</h3>
-http://1010cq.com/index/0178614.html<br>
-<h3>明起停牌！002274，拟易主</h3>
-http://sj.sougo.net/index/3425239.html<br>
-<h3>俄远东一在建天然气化工项目发生火灾致1人死亡百余人受伤</h3>
-http://www.kewarm.com.cn/index/9697109.html<br>
-<h3>德国二季度GDP环比增速上调至0.3%</h3>
-http://webtest01.mq163.net/index/6919230.html<br>
-<h3>中印边界问题特别代表在北京举行会晤</h3>
-http://zhiwaijy.com/index/3784722.html<br>
-<h3>欧洲债市：多个期限的欧债收益率跌至逾一周低位 受油价下跌影响</h3>
-http://sraccessfloor.com/index/0540085.html<br>
-<h3>马丁马里埃塔完成对Lhoist北美业务交割，成为美国领先石灰石产品生产商</h3>
-http://jingan.mq163.net/index/4931521.html<br>
-<h3>OpenAI称自研AI芯片测试表现超越英伟达GB300</h3>
-http://hr.ysshj.com.cn/index/7708049.html<br>
-<h3>湖北形成“海陆空多向联动”的国际物流格局</h3>
-http://www.lishangled.com/index/7593372.html<br>
-<h3>欧洲债市：多个期限的欧债收益率跌至逾一周低位 受油价下跌影响</h3>
-http://lubricus-cn.com/index/3009957.html<br>
-<h3>波士顿联储行长称维持利率不变取决于通胀改善</h3>
-http://xzhuasheng.com/index/0156892.html<br>
-<h3>【滔滔两岸潮】从台积电辞职到深圳创业 台湾“羽球少年”大陆圆梦</h3>
-http://www.hao-tong.com.cn/index/5716193.html<br>
-<h3>俄远东一在建天然气化工项目发生火灾致1人死亡百余人受伤</h3>
-http://0-3.vip/index/6773140.html<br>
-<h3>2026年度电影总票房突破275亿！《欢迎来龙餐馆》公布全球上映计划</h3>
-http://haimite.net/index/9155646.html<br>
-<h3>加拿大如何反击，重创美国经济与特朗普？</h3>
-http://www.gmcomp.com/index/9405162.html<br>
-<h3>拜登任内国家债务增加8万亿美元，位列第三大支出型总统，第一名你或许猜得到</h3>
-http://www.tungsten-molybdenum.net/index/5000060.html<br>
-<h3>波士顿联储行长称维持利率不变取决于通胀改善</h3>
-http://kama-smarter.com/index/3741109.html<br>
+http://www.poaumon.com.cn/index/9001151.html<br>
+<h3>8月26日热门中概股多数上涨 网易涨超4% 富途涨超8%</h3>
+http://www.inkwin.cn/index/1918730.html<br>
+<h3>贝森特导师带头质疑：贝森特的债券操作终将失败</h3>
+http://www.yilevisa.com/index/0171510.html<br>
+<h3>8月26日美股成交额前20：Moderna大涨14% 获多家大行上调目标价</h3>
+http://lzjchina.com/index/1601875.html<br>
+<h3>特朗普称美国正在密切关注伊朗的“镐山”</h3>
+http://www.w312.com/index/47646221.sHtML<br>
+<h3>欧洲股市震荡上行 油价回落提振市场人气</h3>
+http://www.pnetewea.com/index/0730621.html<br>
 <h3>美国消费者信心降至七个月低点 对营商环境和就业前景看法恶化</h3>
-http://xamsjd.com/index/4602548.html<br>
-<h3>中印边界问题特别代表在北京举行会晤</h3>
-http://huangpu.mq163.net/index/4024861.html<br>
-<h3>德国二季度GDP环比增速上调至0.3%</h3>
-http://www.xbrelec.com/index/1599099.html<br>
-<h3>FDA核准罗氏与礼来pTau217血液检测，同一阈值同时用于纳入和排除淀粉样病理</h3>
-http://huangpu.mq163.net/index/5996772.html<br>
-<h3>邓晓峰，40亿元重仓两大周期股</h3>
-http://goldballmachine.com/index/7667424.html<br>
-<h3>迪克体育二季度业绩低于预期，下调全年指引，盘前大跌</h3>
-http://www.zjzjw168.com/index/6459213.html<br>
-<h3>加拿大如何反击，重创美国经济与特朗普？</h3>
-http://www.def-online.com.cn/index/0864842.html<br>
-<h3>西藏山南贡嘎县赛马暨文化旅游活动启幕</h3>
-http://splashgroup.cn/index/1165546.html<br>
-<h3>一名在韩失踪中国公民遇害 嫌疑人已被捕</h3>
-http://www.lpcgxf.com/index/2925980.html<br>
+http://szxinsike.com/index/4937946.html<br>
+<h3>古巴谴责美国延长对古实施经济封锁</h3>
+http://www.gdzshqt.com/index/2495294.html<br>
 <h3>卡尼等额反击特朗普 加拿大将对美国家具和钢铝征收50%的关税</h3>
-http://hongkou.mq163.net/index/9642103.html<br>
-<h3>马来西亚热浪来袭 多地发布高温警报</h3>
-http://hongkou.mq163.net/index/1807469.html<br>
+http://www.zddy.cn/index/7832925.html<br>
 <h3>通胀担忧降温，资金轮动涌入科技股</h3>
-http://ec-h.com.cn/index/6594529.html<br>
-<h3>广东拥抱AI 助力流行音乐创作</h3>
-http://luxuryliving.cn/index/5792732.html<br>
-<h3>美军机降落莫斯科？克宫回应</h3>
-http://gmcomp.com/index/5599911.html<br>
-<h3>马来西亚热浪来袭 多地发布高温警报</h3>
-http://www.shjiyue.com/index/0986649.html<br>
-<h3>俄远东一在建天然气化工项目发生火灾致1人死亡百余人受伤</h3>
-http://www.sinosec.com.cn/index/3811609.html<br>
-<h3>湖北形成“海陆空多向联动”的国际物流格局</h3>
-http://baltec.cn/index/8564375.html<br>
-<h3>第十一届APEC粮食安全部长级会议在浙江杭州举行</h3>
-http://yangpu.mq163.net/index/0245346.html<br>
+http://yifafs.com/index/5301710.html<br>
+<h3>伊朗与卡塔尔外长通话 商讨防止地区局势升级</h3>
+http://www.shhkyjs.com/index/2888857.html<br>
+<h3>Anthropic或将向投资者披露，潜在市场收入规模超30万亿美元</h3>
+http://www.xuzhoubaojie.com/index/44200851.sHtML<br>
+<h3>王楚钦、孙颖莎领衔WTT中国大满贯赛参赛名单</h3>
+http://www.baltec.cn/index/3535505.html<br>
+<h3>加拿大报复清单：覆盖逾700种美国商品 关税从15%到50%</h3>
+http://www.shxinde.cn/index/7473518.html<br>
+<h3>俄远东在建天然气化工项目火灾致死人数升至3人</h3>
+http://www.puxikj.com/index/9230185.html<br>
 <h3>《富爸爸穷爸爸》作者警告持有这类“虚假资产”的人将会变穷</h3>
-http://5pvc.com/index/0936294.html<br>
-<h3>【活力中国调研行】鲁北小城“智造”全球三成商用健身器材</h3>
-http://inkwin.cn/index/2953091.html<br>
-<h3>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”</h3>
-http://www.morxin.com.cn/index/7441120.html<br>
-<h3>美国8月消费者信心下降 对商业和就业前景看法恶化</h3>
-http://www.glycanlink.com/index/5801529.html<br>
-<h3>美军机降落莫斯科？克宫回应</h3>
-http://www.hzcycs.com/index/3703179.html<br>
+http://www.xabrsy.com/index/8957343.html<br>
+<h3>8月26日美股成交额前20：Moderna大涨14% 获多家大行上调目标价</h3>
+http://intknife.com/index/4780367.html<br>
 <h3>沪港数字合作成果丰硕 将深化数据标准对接</h3>
-http://www.tjanbao.com/index/3479964.html<br>
-<h3>特朗普称美国正在密切关注伊朗的“镐山”</h3>
-http://www.cn.anteky.com/index/8294611.html<br>
-<h3>纪念红军长征胜利90周年 百余名港澳青年于都重走长征路</h3>
-http://150252.com/index/9444974.html<br>
-<h3>摩根士丹利：五大云巨头与英伟达等AI相关表外承诺超过3.1万亿美元</h3>
-http://sync.ytone.com.cn/index/7427680.html<br>
-<h3>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”</h3>
-http://www.shlidiao.com/index/5914348.html<br>
-<h3>美国8月消费者信心下降 对商业和就业前景看法恶化</h3>
-http://www.tungsten-molybdenum.net.cn/index/7929505.html<br>
-<h3>FDA核准罗氏与礼来pTau217血液检测，同一阈值同时用于纳入和排除淀粉样病理</h3>
-http://www.okaway-china.com/index/2045184.html<br>
-<h3>百只人工繁育绿海龟在广东惠东放归大海</h3>
-http://wuxibaomei.com/index/7255331.html<br>
-<h3>明起停牌！002274，拟易主</h3>
-http://kaiyimei.com/index/7854455.html<br>
-<h3>美联航宣布史上最大国际扩张：2027年新开10城，纽瓦克担主场</h3>
-http://www.5656pk.com/index/5338374.html<br>
-<h3>纪念红军长征胜利90周年 百余名港澳青年于都重走长征路</h3>
-http://www.hanveygift.com/index/7752989.html<br>
-<h3>马斯克称SpaceX轨道数据中心发射时间提前至2027年</h3>
-http://www.tjanbao.com/index/0948242.html<br>
-<h3>俄远东一在建天然气化工项目发生火灾致1人死亡百余人受伤</h3>
-http://shanghai.shbjhx.com/index/7714692.html<br>
-<h3>德国二季度GDP环比增速上调至0.3%</h3>
-http://www.cndya.com/index/8483806.html<br>
-<h3>邓晓峰，40亿元重仓两大周期股</h3>
-http://www.sougo.net/index/9874258.html<br>
-<h3>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”</h3>
-http://m.cn-o.com/index/9374218.html<br>
-<h3>FDA核准罗氏与礼来pTau217血液检测，同一阈值同时用于纳入和排除淀粉样病理</h3>
-http://www.gdzshqt.com/index/5390912.html<br>
-<h3>软件板块相对芯片板块走出创纪录强势行情</h3>
-http://www.hollnen.cn/index/6810287.html<br>
-<h3>美联航宣布史上最大国际扩张：2027年新开10城，纽瓦克担主场</h3>
-http://hydraulicpm.com/index/6627263.html<br>
-<h3>【活力中国调研行】鲁北小城“智造”全球三成商用健身器材</h3>
-http://www.young-chic.com/index/5795349.html<br>
-<h3>纪念红军长征胜利90周年 百余名港澳青年于都重走长征路</h3>
-http://px551.cn/index/1563618.html<br>
-<h3>纪念红军长征胜利90周年 百余名港澳青年于都重走长征路</h3>
-http://www.px551.cn/index/5836431.html<br>
-<h3>明起停牌！002274，拟易主</h3>
-http://www.xiulian.com/index/35635981.sHtML<br>
-<h3>美国7月新屋销售降至六个月低点 抵押贷款利率高企抑制需求</h3>
-http://jiarui-container.com/index/6856890.html<br>
-<h3>广东拥抱AI 助力流行音乐创作</h3>
-http://4g.pnetewea.com/index/7496498.html<br>
+http://yilevisa.com/index/8314096.html<br>
+<h3>新疆阿勒泰加快打造中国高纯石英产业新高地</h3>
+http://www.hsdshowroom.com/index/1304177.html<br>
+<h3>OpenAI称自研AI芯片测试表现超越英伟达GB300</h3>
+http://xzpx.yshixun.com/index/0643112.html<br>
+<h3>欧洲股市震荡上行 油价回落提振市场人气</h3>
+http://www.chemls.com/index/8508688.html<br>
+<h3>通胀担忧降温，资金轮动涌入科技股</h3>
+http://www.hezhongsz.cn/index/9352598.html<br>
+<h3>欧洲债市：多个期限的欧债收益率跌至逾一周低位 受油价下跌影响</h3>
+http://www.hao-tong.com.cn/index/5447005.html<br>
+<h3>加拿大宣布对美国商品征收报复性关税</h3>
+http://hrhuizhong.com/index/0159916.html<br>
+<h3>美国2年期国债拍卖结果连续第四个月表现出色 中标收益率4.204%</h3>
+http://www.vmeca.net.cn/index/5423102.html<br>
+<h3>美国中情局局长John Ratcliffe据悉突然造访莫斯科</h3>
+http://tjhxyd.com/index/8284055.html<br>
+<h3>欧洲债市：多个期限的欧债收益率跌至逾一周低位 受油价下跌影响</h3>
+http://fbgjc.com/index/6214541.html<br>
+<h3>南宁海事局使用重载无人机成功救助3艘遇险船舶</h3>
+http://www.yunmmedia.com/index/7562831.html<br>
+<h3>加拿大宣布对价值约200亿美元的美国商品征收报复性关税</h3>
+http://0-3.vip/index/1346071.html<br>
+<h3>8月26日美股收盘：三大股指普涨 英伟达涨超2%</h3>
+http://www.enkibiopharma.com/index/4665242.html<br>
+<h3>OpenAI称自研AI芯片测试表现超越英伟达GB300</h3>
+http://aimniche.com/index/2299998.html<br>
+<h3>美国股市：科技股走强提振大盘 市场静待英伟达财报</h3>
+http://zyoud.cn/index/3264436.html<br>
+<h3>台风“紫檀”在广东徐闻再次登陆 广东广西等地今明天将有强风雨</h3>
+http://www.hsetcl.com/index/8039704.html<br>
+<h3>中方呼吁推动停火止战以保障粮食生产安全</h3>
+http://brother-chn.com/index/0724886.html<br>
+<h3>南宁海事局使用重载无人机成功救助3艘遇险船舶</h3>
+http://www.ntcar.cn/index/3341418.html<br>
+<h3>Anthropic或将向投资者披露，潜在市场收入规模超30万亿美元</h3>
+http://txzydz.com/index/2868660.html<br>
+<h3>台风“紫檀”在广东徐闻再次登陆 广东广西等地今明天将有强风雨</h3>
+http://car.ntcar.cn/index/5455948.html<br>
+<h3>伊朗和阿曼讨论霍尔木兹海峡航运 拟设“临时联合海上走廊”</h3>
+http://avidamusictech.com/index/3063336.html<br>
+<h3>原油：油价延续跌势 外交努力缓解伊朗局势担忧</h3>
+http://def-online.com.cn/index/7270717.html<br>
+<h3>贝森特导师带头质疑：贝森特的债券操作终将失败</h3>
+http://jskqly.com/index/8354435.html<br>
+<h3>俄远东在建天然气化工项目火灾致死人数升至3人</h3>
+http://www.cleanwrap.com.cn/index/7951368.html<br>
+<h3>伊朗与卡塔尔外长通话 商讨防止地区局势升级</h3>
+http://www.shchaoh.com/index/2043721.html<br>
+<h3>卡尼等额反击特朗普 加拿大将对美国家具和钢铝征收50%的关税</h3>
+http://mountech-it.com/index/0612435.html<br>
+<h3>古巴谴责美国延长对古实施经济封锁</h3>
+http://yshixun.com/index/3458811.html<br>
+<h3>卡尼等额反击特朗普 加拿大将对美国家具和钢铝征收50%的关税</h3>
+http://www.kewarm.com.cn/index/2213330.html<br>
+<h3>一名在韩失踪中国公民遇害 嫌疑人已被捕</h3>
+http://wuxibaomei.cn/index/7259227.html<br>
+<h3>中方呼吁推动停火止战以保障粮食生产安全</h3>
+http://zsyuanju.com/index/7465897.html<br>
 <h3>2026年度电影总票房突破275亿！《欢迎来龙餐馆》公布全球上映计划</h3>
-http://sail-dg.com/index/5644412.html<br>
-<h3>加拿大如何反击，重创美国经济与特朗普？</h3>
-http://www.yiyufu.cn/index/2139352.html<br>
-<h3>恒生电子半年报披露蚂蚁基金上半年营收129.8亿元 净利增178%</h3>
-http://www.toyd.cn/index/5680216.html<br>
-<h3>2026年度电影总票房突破275亿！《欢迎来龙餐馆》公布全球上映计划</h3>
-http://51tl.cc/index/3492796.html<br>
-<h3>俄远东一在建天然气化工项目发生火灾致1人死亡百余人受伤</h3>
-http://www.shanghaijiyi.com/index/2561850.html<br>
+http://www.seamandiesel.com/index/8954391.html<br>
+<h3>美国中情局局长John Ratcliffe据悉突然造访莫斯科</h3>
+http://www.m-msh.com/index/3957471.html<br>
+<h3>南宁海事局使用重载无人机成功救助3艘遇险船舶</h3>
+http://m.wfhzxd.ntcar.cn/index/9871427.html<br>
 <h3>拜登任内国家债务增加8万亿美元，位列第三大支出型总统，第一名你或许猜得到</h3>
-http://www.shchaoh.com/index/7856216.html<br>
-<h3>特朗普称美国正在密切关注伊朗的“镐山”</h3>
-http://www.zrcaipu.com/index/0449848.html<br>
-<h3>苹果发布升级版Mac mini和Mac Studio 为新款iPhone预热</h3>
-http://bjbrcx.com/index/2509766.html<br>
-<h3>马来西亚热浪来袭 多地发布高温警报</h3>
-http://www.cskjs.com/index/7463582.html<br>
+http://hao-tong.cn/index/8109744.html<br>
+<h3>伊朗和阿曼外长讨论霍尔木兹航运问题 拟议框架包括建立海上走廊</h3>
+http://www.tesdo.pw/index/8236980.html<br>
+<h3>欧洲股市震荡上行 油价回落提振市场人气</h3>
+http://www.xxhcom.cn/index/4996233.html<br>
+<h3>《富爸爸穷爸爸》作者警告持有这类“虚假资产”的人将会变穷</h3>
+http://www.zsjb168.com/index/4568350.html<br>
+<h3>比特币一度突破81000美元，ETF资金流入助推加密货币反弹加速</h3>
+http://www.cd-cygy.com/index/0300294.html<br>
+<h3>8月26日外盘头条：加拿大对美国征收报复性关税 美中情局长突访莫斯科 OpenAI称自研AI芯片超英伟达GB300</h3>
+http://pingdu.qdgxdq.com/index/7657462.html<br>
+<h3>摩根士丹利：五大云巨头与英伟达等AI相关表外承诺超过3.1万亿美元</h3>
+http://hsetcl.com/index/6285990.html<br>
+<h3>OpenAI称自研AI芯片测试表现超越英伟达GB300</h3>
+http://changyun688.com/index/9335414.html<br>
+<h3>广西龙州多个村落成“孤岛” 救援人员水陆多轮接力紧急送物资</h3>
+http://m.mlry.com.cn/index/7054684.html<br>
+<h3>湄公河水位上涨致柬埔寨四省逾1.8万户家庭受灾</h3>
+http://www.shxf17.com/index/4487327.html<br>
+<h3>通胀担忧降温，资金轮动涌入科技股</h3>
+http://bao-mei.cn/index/4557026.html<br>
+<h3>马斯克称SpaceX轨道数据中心发射时间提前至2027年</h3>
+http://dgxuanke.com/index/6693751.html<br>
+<h3>8月26日美股成交额前20：Moderna大涨14% 获多家大行上调目标价</h3>
+http://www.sh-ruiwu.com/index/6458001.html<br>
+<h3>马斯克称SpaceX轨道数据中心发射时间提前至2027年</h3>
+http://www.dctyjx.cn/index/5251863.html<br>
+<h3>英伟达周三将发布业绩 分析师料营收增速继续领先大多数同行</h3>
+http://mzgpo.com/index/6214123.html<br>
+<h3>沪港数字合作成果丰硕 将深化数据标准对接</h3>
+http://notachem.com/index/9892037.html<br>
+<h3>摩根士丹利：五大云巨头与英伟达等AI相关表外承诺超过3.1万亿美元</h3>
+http://m.cn-o.com/index/4147104.html<br>
+<h3>伊朗和阿曼讨论霍尔木兹海峡航运 拟设“临时联合海上走廊”</h3>
+http://jingan.mq163.net/index/9992429.html<br>
+<h3>王楚钦、孙颖莎领衔WTT中国大满贯赛参赛名单</h3>
+http://baltec.cn/index/7968302.html<br>
+<h3>卡尼等额反击特朗普 加拿大将对美国家具和钢铝征收50%的关税</h3>
+http://qingdao.shbjhx.com/index/2818034.html<br>
+<h3>第十一届APEC粮食安全部长级会议在浙江杭州举行</h3>
+http://www.iuviki.com/index/9454108.html<br>
+<h3>加拿大报复清单：覆盖逾700种美国商品 关税从15%到50%</h3>
+http://www.aiyouruote.com/index/2954414.html<br>
+<h3>广西龙州多个村落成“孤岛” 救援人员水陆多轮接力紧急送物资</h3>
+http://www.vanman.cn/index/3081312.html<br>
+<h3>质疑之声不消反涨 贝森特加码长债回购招致市场五大批评</h3>
+http://m.mlry.com.cn/index/7027128.html<br>
+<h3>南宁海事局使用重载无人机成功救助3艘遇险船舶</h3>
+http://lt.qushizqw.com/index/3197042.html<br>
+<h3>俄远东在建天然气化工项目火灾致死人数升至3人</h3>
+http://www.lyuc.com.cn/index/4651063.html<br>
+<h3>欧洲债市：多个期限的欧债收益率跌至逾一周低位 受油价下跌影响</h3>
+http://www.ups258.com/index/7657562.html<br>
+<h3>拜登任内国家债务增加8万亿美元，位列第三大支出型总统，第一名你或许猜得到</h3>
+http://www.empersys.com/index/1614560.html<br>
+<h3>南宁海事局使用重载无人机成功救助3艘遇险船舶</h3>
+http://mzgpo.com/index/5543700.html<br>
+<h3>美国2年期国债拍卖结果连续第四个月表现出色 中标收益率4.204%</h3>
+http://www.yunchengguoji.com/index/6381157.html<br>
+<h3>8月26日美股成交额前20：Moderna大涨14% 获多家大行上调目标价</h3>
+http://volox-agv.com.cn/index/6458739.html<br>
+<h3>一名在韩失踪中国公民遇害 嫌疑人已被捕</h3>
+http://www.xxhcom.cn/index/1291627.html<br>
+<h3>原油：油价延续跌势 外交努力缓解伊朗局势担忧</h3>
+http://www.ndwj-srq.com/index/0030756.html<br>
+<h3>新疆阿勒泰加快打造中国高纯石英产业新高地</h3>
+http://www.yingjiang-hk.com/index/3644142.html<br>
+<h3>摩根士丹利：五大云巨头与英伟达等AI相关表外承诺超过3.1万亿美元</h3>
+http://liyuanxun.com/index/9990581.html<br>
+<h3>8月26日热门中概股多数上涨 网易涨超4% 富途涨超8%</h3>
+http://www.cnmedsim.org/index/5068929.html<br>
+<h3>加拿大宣布对价值约200亿美元的美国商品征收报复性关税</h3>
+http://www.notachem.com/index/0017839.html<br>
+<h3>贝森特导师带头质疑：贝森特的债券操作终将失败</h3>
+http://maximumtex.com/index/0495604.html<br>
+<h3>8月26日美股收盘：三大股指普涨 英伟达涨超2%</h3>
+http://www.shpcx.cn/index/2649022.html<br>
+<h3>通胀担忧降温，资金轮动涌入科技股</h3>
+http://www.longy520.com/index/19131415.sHtML<br>
+<h3>加拿大宣布对美国商品征收报复性关税</h3>
+http://granddomain.net/index/2313862.html<br>
+<h3>沪港数字合作成果丰硕 将深化数据标准对接</h3>
+http://www.puningtech.com/index/6022150.html<br>
+<h3>《富爸爸穷爸爸》作者警告持有这类“虚假资产”的人将会变穷</h3>
+http://www.005my.com/index/08683959.sHtML<br>
+<h3>8月26日热门中概股多数上涨 网易涨超4% 富途涨超8%</h3>
+http://www.shlhzk.com/index/6369229.html<br>
+<h3>英伟达周三将发布业绩 分析师料营收增速继续领先大多数同行</h3>
+http://kingsailshipping.com.cn/index/5987151.html<br>
+<h3>8月26日热门中概股多数上涨 网易涨超4% 富途涨超8%</h3>
+http://szmeiyitian.cn/index/2722979.html<br>
+<h3>质疑之声不消反涨 贝森特加码长债回购招致市场五大批评</h3>
+http://www.shjiyue.com/index/5674573.html<br>
+<h3>英伟达周三将发布业绩 分析师料营收增速继续领先大多数同行</h3>
+http://axmsemic.com/index/3566131.html<br>
+<h3>比特币一度突破81000美元，ETF资金流入助推加密货币反弹加速</h3>
+http://www.luxuryliving.cn/index/4565409.html<br>
+<h3>OpenAI称自研AI芯片测试表现超越英伟达GB300</h3>
+http://dlwmkj.com/index/3787623.html<br>
+<h3>IMF总裁呼吁各国应对财政风险 央行继续专注抗通胀</h3>
+http://www.corues.cn/index/7126882.html<br>
+<h3>欧洲债市：多个期限的欧债收益率跌至逾一周低位 受油价下跌影响</h3>
+http://shrunjing.com/index/2168863.html<br>
+<h3>美国民主党议员对沃什推动减少议息会议次数表示关切</h3>
+http://www.sawatech.com.cn/index/3405162.html<br>
+<h3>俄远东在建天然气化工项目火灾致死人数升至3人</h3>
+http://www.tvpusher.com/index/5487268.html<br>
+<h3>加拿大宣布对美国商品征收报复性关税</h3>
+http://hsdshowroom.com/index/4882958.html<br>
+<h3>质疑之声不消反涨 贝森特加码长债回购招致市场五大批评</h3>
+http://www.chenqiangkg.com/index/9688789.html<br>
+<h3>美国2年期国债拍卖结果连续第四个月表现出色 中标收益率4.204%</h3>
+http://baoshan.mq163.net/index/0388971.html<br>
+<h3>IMF总裁呼吁各国应对财政风险 央行继续专注抗通胀</h3>
+http://www.hid-arch.com/index/1074375.html<br>
+<h3>美国8月消费者信心指数降至7个月来最低值</h3>
+http://www.zwdldj.com/index/3339225.html<br>
+<h3>马斯克称SpaceX轨道数据中心发射时间提前至2027年</h3>
+http://renyounglab.com/index/2466370.html<br>
+<h3>加拿大报复清单：覆盖逾700种美国商品 关税从15%到50%</h3>
+http://www.xhblfloor.com/index/1721947.html<br>
+<h3>沪港数字合作成果丰硕 将深化数据标准对接</h3>
+http://chirl-tech.com/index/9711011.html<br>
+<h3>拜登任内国家债务增加8万亿美元，位列第三大支出型总统，第一名你或许猜得到</h3>
+http://baoshan.mq163.net/index/3334127.html<br>
+<h3>摩根士丹利：五大云巨头与英伟达等AI相关表外承诺超过3.1万亿美元</h3>
+http://tungsten-molybdenum.net/index/2977012.html<br>
+<h3>原油：油价延续跌势 外交努力缓解伊朗局势担忧</h3>
+http://szxinsike.com/index/8612968.html<br>
+<h3>美国2年期国债拍卖结果连续第四个月表现出色 中标收益率4.204%</h3>
+http://www.zsjb168.com/index/3926392.html<br>
+<h3>摩根士丹利：五大云巨头与英伟达等AI相关表外承诺超过3.1万亿美元</h3>
+http://www.005my.com/index/06670707.sHtML<br>
+<h3>8月26日外盘头条：加拿大对美国征收报复性关税 美中情局长突访莫斯科 OpenAI称自研AI芯片超英伟达GB300</h3>
+http://www.chinaris.cn/index/4830426.html<br>
+<h3>比特币一度突破81000美元，ETF资金流入助推加密货币反弹加速</h3>
+http://www.shbreezetech.com/index/1188173.html<br>
+<h3>伊朗和阿曼外长讨论霍尔木兹航运问题 拟议框架包括建立海上走廊</h3>
+http://bjboruicx.com/index/2025733.html<br>
+<h3>俄远东在建天然气化工项目火灾致死人数升至3人</h3>
+http://www.rxcq.com/index/4596759.html<br>
+<h3>美国民主党议员对沃什推动减少议息会议次数表示关切</h3>
+http://mzgpo.com/index/6551084.html<br>
+<h3>第十一届APEC粮食安全部长级会议在浙江杭州举行</h3>
+http://en.pnetewea.com/index/7691133.html<br>
+<h3>美国消费者信心降至七个月低点 对营商环境和就业前景看法恶化</h3>
+http://www.rj-qc.com/index/0286098.html<br>
+<h3>欧洲股市震荡上行 油价回落提振市场人气</h3>
+http://www.iuviki.com/index/8185422.html<br>
+<h3>加拿大宣布对价值约200亿美元的美国商品征收报复性关税</h3>
+http://ka-ya.cn/index/7405500.html<br>
+<h3>欧洲股市震荡上行 油价回落提振市场人气</h3>
+http://88176.top/index/4231931.html<br>
+<h3>OpenAI称自研AI芯片测试表现超越英伟达GB300</h3>
+http://www.chirand.cn/index/4843123.html<br>
+<h3>2026年度电影总票房突破275亿！《欢迎来龙餐馆》公布全球上映计划</h3>
+http://iuviki.com/index/6341883.html<br>
+<h3>比特币一度突破81000美元，ETF资金流入助推加密货币反弹加速</h3>
+http://cyw.zsjb168.com/index/8138651.html<br>
+<h3>8月26日美股收盘：三大股指普涨 英伟达涨超2%</h3>
+http://wap.sinosec.com.cn/index/1679370.html<br>
+<h3>伊朗与卡塔尔外长通话 商讨防止地区局势升级</h3>
+http://www.ts-wtsrq.com/index/6909665.html<br>
+<h3>IMF总裁呼吁各国应对财政风险 央行继续专注抗通胀</h3>
+http://opzoedu.com/index/9936120.html<br>
+<h3>南宁海事局使用重载无人机成功救助3艘遇险船舶</h3>
+http://www.chenqiangkg.com/index/5636764.html<br>
+<h3>质疑之声不消反涨 贝森特加码长债回购招致市场五大批评</h3>
+http://www.kxek.net/index/5744025.html<br>
+<h3>8月26日热门中概股多数上涨 网易涨超4% 富途涨超8%</h3>
+http://www.wansion.net/index/3791408.html<br>
+<h3>马斯克称SpaceX轨道数据中心发射时间提前至2027年</h3>
+http://www.xuzhoubaojie.com/index/23885823.sHtML<br>
+<h3>8月26日美股成交额前20：Moderna大涨14% 获多家大行上调目标价</h3>
+http://www.shqyee.com/index/8807330.html<br>
+<h3>比特币一度突破81000美元，ETF资金流入助推加密货币反弹加速</h3>
+http://crystalpavilion.com.cn/index/6276889.html<br>
+<h3>英伟达周三将发布业绩 分析师料营收增速继续领先大多数同行</h3>
+http://www.corues.cn/index/0073943.html<br>
+<h3>美国中情局局长John Ratcliffe据悉突然造访莫斯科</h3>
+http://xzhuasheng.com/index/5711878.html<br>
+<h3>美国消费者信心降至七个月低点 对营商环境和就业前景看法恶化</h3>
+http://www.huidirobot.com/index/3064034.html<br>
+<h3>一名在韩失踪中国公民遇害 嫌疑人已被捕</h3>
+http://www.sindee.com.cn/index/0072970.html<br>
+<h3>伊朗和阿曼外长讨论霍尔木兹航运问题 拟议框架包括建立海上走廊</h3>
+http://www.qushizqw.com/index/2148903.html<br>
+<h3>卡尼等额反击特朗普 加拿大将对美国家具和钢铝征收50%的关税</h3>
+http://www.materialhandling.cn/index/0040590.html<br>
+<h3>王楚钦、孙颖莎领衔WTT中国大满贯赛参赛名单</h3>
+http://www.chinaris.cn/index/7418359.html<br>
+<h3>俄远东在建天然气化工项目火灾致死人数升至3人</h3>
+http://sz-supower.com.cn/index/1009028.html<br>
+<h3>湖北形成“海陆空多向联动”的国际物流格局</h3>
+http://gdzkfa.com/index/6955500.html<br>
+<h3>伊朗和阿曼讨论霍尔木兹海峡航运 拟设“临时联合海上走廊”</h3>
+http://pnetewea.com/index/3589999.html<br>
+<h3>8月26日美股收盘：三大股指普涨 英伟达涨超2%</h3>
+http://www.77jz.com/index/3144860.html<br>
+<h3>美国股市：科技股走强提振大盘 市场静待英伟达财报</h3>
+http://www.kama-smarter.com/index/4640160.html<br>
+<h3>8月26日热门中概股多数上涨 网易涨超4% 富途涨超8%</h3>
+http://www.net98.net/index/3616818.html<br>
+<h3>第十一届APEC粮食安全部长级会议在浙江杭州举行</h3>
+http://www.sunway-hyd.com/index/6472557.html<br>
+<h3>OpenAI称自研AI芯片测试表现超越英伟达GB300</h3>
+http://www.materialhandling.cn/index/3396523.html<br>
+<h3>古巴谴责美国延长对古实施经济封锁</h3>
+http://sy.longpaiseed.com/index/4702516.html<br>
+<h3>2026年度电影总票房突破275亿！《欢迎来龙餐馆》公布全球上映计划</h3>
+http://www.ec-h.com.cn/index/9500059.html<br>
+<h3>王楚钦、孙颖莎领衔WTT中国大满贯赛参赛名单</h3>
+http://www.aj176.com/index/4394368.html<br>
+<h3>湖北形成“海陆空多向联动”的国际物流格局</h3>
+http://www.xabrsy.com/index/4021715.html<br>
+<h3>8月26日美股成交额前20：Moderna大涨14% 获多家大行上调目标价</h3>
+http://www.njcyjsgc.com/index/0702195.html<br>
+<h3>伊朗和阿曼讨论霍尔木兹海峡航运 拟设“临时联合海上走廊”</h3>
+http://www.80aipk.com/index/08868942.sHtML<br>
+<h3>美国2年期国债拍卖结果连续第四个月表现出色 中标收益率4.204%</h3>
+http://fengxian.mq163.net/index/5945734.html<br>
+<h3>欧洲股市震荡上行 油价回落提振市场人气</h3>
+http://www.liyuanxun.com/index/5244251.html<br>
+<h3>古巴谴责美国延长对古实施经济封锁</h3>
+http://www.toyd.cn/index/7823118.html<br>
+<h3>一名在韩失踪中国公民遇害 嫌疑人已被捕</h3>
+http://www.sdp-cn.com/index/8662282.html<br>
+<h3>Anthropic或将向投资者披露，潜在市场收入规模超30万亿美元</h3>
+http://www.shlhzk.com/index/9973857.html<br>
+<h3>8月26日热门中概股多数上涨 网易涨超4% 富途涨超8%</h3>
+http://shqyee.com/index/2174834.html<br>
+<h3>美国消费者信心降至七个月低点 对营商环境和就业前景看法恶化</h3>
+http://changyun688.com/index/0008791.html<br>
+<h3>8月26日美股收盘：三大股指普涨 英伟达涨超2%</h3>
+http://sawatech.com.cn/index/7466862.html<br>
