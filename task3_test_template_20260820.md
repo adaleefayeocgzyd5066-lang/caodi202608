@@ -1,429 +1,438 @@
-<h1>“紫檀”在海南省昌江县沿海登陆</h1>
-<p><strong>更新时间：</strong>2026年08月25日 21时06分01秒 (UTC+8)</p>
-<p>栏目：AI Builders Digest　主题：“紫檀”在海南省昌江县沿海登陆</p>
+<h1>卡尼等额反击特朗普 加拿大将对美国家具和钢铝征收50%的关税</h1>
+<p><strong>更新时间：</strong>2026年08月26日 01时56分05秒 (UTC+8)</p>
+<p>栏目：AI Builders Digest　主题：卡尼等额反击特朗普 加拿大将对美国家具和钢铝征收50%的关税</p>
 <h2>摘要</h2>
-<p>今年第19号台风“紫檀”(热带风暴级)的中心已于25日18时40分前后在海南省昌江县沿海登陆，登陆时中心附近最大风力有8级(20米/秒)，中心最低气压993百帕。</p>
+<p>加拿大总理马克·卡尼对美国总统唐纳德·特朗普周末宣布的新关税实施等额反击，并将对受贸易战加剧影响的本国企业提供支持。 渥太华将把对美国钢铝制品的现有反制关税提高一倍至50%。此外，美国制造的家具、服装和服饰，以及视频游戏机、智能手机和其它电子产品也将面临50%的新关税。 总体而言，这些报复性关税将影响每年约200亿美元的美国商品，与特朗普周六援引1930年《关税法》中一项从未动用过的条款对加拿大产品征收关税大致等额。这相当于加拿大去年从</p>
 <h2>正文</h2>
-<p>今年第19号台风“紫檀”(热带风暴级)的中心已于25日18时40分前后在海南省昌江县沿海登陆，登陆时中心附近最大风力有8级(20米/秒)，中心最低气压993百帕。</p>
+<p>加拿大总理马克·卡尼对美国总统唐纳德·特朗普周末宣布的新关税实施等额反击，并将对受贸易战加剧影响的本国企业提供支持。</p>
+<p>渥太华将把对美国钢铝制品的现有反制关税提高一倍至50%。</p>
+<p>此外，美国制造的家具、服装和服饰，以及视频游戏机、智能手机和其它电子产品也将面临50%的新关税。</p>
+<p>总体而言，这些报复性关税将影响每年约200亿美元的美国商品，与特朗普周六援引1930年《关税法》中一项从未动用过的条款对加拿大产品征收关税大致等额。</p>
+<p>这相当于加拿大去年从美国进口商品总额的约6%。</p>
+<p>新关税将于9月8日生效。</p>
+<p>家电、奶酪、鱼类、海鲜以及特定钢铝衍生品等其它美国商品将被征收25%的新关税。</p>
+<p>一系列美制机械、工业工具和农用设备将被征收15%的关税。</p>
+<p>加拿大政府还公布了一项75亿加元（折合54亿美元）的加拿大企业扶持计划，其中包括增加对部分现有项目的资金投入。</p>
+<p>新措施还涵盖了为中小企业提供流动性支持，向受美国关税影响的公司拨款以加快其提出的项目，以及延长受影响行业的就业保险计划并提高灵活性。</p>
 <h2>内链</h2>
-<h3>20260825-00lhrlrd</h3>
-<p>湖南江永“稻藠轮作”激活秋种 一地双收赋能瑶乡振兴<br><br>来源：<a href="https://github.com/raeganazariahqswbdr1627-cpu/xinwen202608/blob/main/20260825-00lhrlrd.md">https://github.com/raeganazariahqswbdr1627-cpu/xinwen202608/blob/main/20260825-00lhrlrd.md</a></p>
-<h3>20260825-j999xbgt</h3>
-<p>浙江检察机关上线AI智能体 “智慧搭档”融入办案全链条<br><br>来源：<a href="https://github.com/bdor2v-code/yule202608/blob/main/20260825-j999xbgt.md">https://github.com/bdor2v-code/yule202608/blob/main/20260825-j999xbgt.md</a></p>
-<h3>20260825-rsxvumxs</h3>
-<p>半年狂赚223亿！光模块三巨头中报全景：AI算力业绩兑现，高景气向2027年延伸<br><br>来源：<a href="https://github.com/linhh234/20260718_03/blob/main/20260825-rsxvumxs.md">https://github.com/linhh234/20260718_03/blob/main/20260825-rsxvumxs.md</a></p>
-<h3>20260825-5fmw9hzp</h3>
-<p>镌刻青春入苍穹 哈尔滨青少年研制科普卫星奔赴太空<br><br>来源：<a href="https://github.com/adelynmikaelakcgnmt0762-spec/wenhua202608/blob/main/20260825-5fmw9hzp.md">https://github.com/adelynmikaelakcgnmt0762-spec/wenhua202608/blob/main/20260825-5fmw9hzp.md</a></p>
-<h3>20260825-lkjtkazr</h3>
-<p>江永女书研究院揭牌 非遗瑰宝开启学术活化新篇章<br><br>来源：<a href="https://github.com/helenaddysonkahuuj0793-create/keji202608/blob/main/20260825-lkjtkazr.md">https://github.com/helenaddysonkahuuj0793-create/keji202608/blob/main/20260825-lkjtkazr.md</a></p>
-<h3>20260825-vejx7led</h3>
-<p>长城基金汪立：市场有望迎来“金秋行情”，关注科技、制造与大金融<br><br>来源：<a href="https://github.com/miot0t-create/yule202608/blob/main/20260825-vejx7led.md">https://github.com/miot0t-create/yule202608/blob/main/20260825-vejx7led.md</a></p>
-<h3>20260825-c0fqsluv</h3>
-<p>“灾难”！高市“蟑螂故事”让外国网民笑翻了<br><br>来源：<a href="https://github.com/bdor2v-code/guangming202608/blob/main/20260825-c0fqsluv.md">https://github.com/bdor2v-code/guangming202608/blob/main/20260825-c0fqsluv.md</a></p>
-<h3>20260825-pniselus</h3>
-<p>长城基金汪立：市场有望迎来“金秋行情”，关注科技、制造与大金融<br><br>来源：<a href="https://github.com/lindsayawren-sys/20260718_09/blob/main/20260825-pniselus.md">https://github.com/lindsayawren-sys/20260718_09/blob/main/20260825-pniselus.md</a></p>
-<h3>20260825-9wykqahn</h3>
-<p>湖北建始女儿会游园寻缘 沉浸式品读土家婚恋浪漫<br><br>来源：<a href="https://github.com/ero9esx-creator/yinyue202608/blob/main/20260825-9wykqahn.md">https://github.com/ero9esx-creator/yinyue202608/blob/main/20260825-9wykqahn.md</a></p>
-<h3>20260825-tivhx041</h3>
-<p>500名青少年跆拳道好手相聚 陕西眉县以赛赋能体旅农融合发展<br><br>来源：<a href="https://github.com/miot0t-create/guangming202608/blob/main/20260825-tivhx041.md">https://github.com/miot0t-create/guangming202608/blob/main/20260825-tivhx041.md</a></p>
-<h3>20260815-lplekqoi</h3>
-<p>喝了暴晒过的瓶装水会致癌？夏季车内存水注意这些风险→<br><br>来源：<a href="https://github.com/theahayleendnoqd6760-ux/wenhua202608/blob/main/20260815-lplekqoi.md">https://github.com/theahayleendnoqd6760-ux/wenhua202608/blob/main/20260815-lplekqoi.md</a></p>
-<h3>20260810-b8izqen9</h3>
-<p>江永女书研究院揭牌 非遗瑰宝开启学术活化新篇章<br><br>来源：<a href="https://github.com/theahayleendnoqd6760-ux/ziran202608/blob/main/20260810-b8izqen9.md">https://github.com/theahayleendnoqd6760-ux/ziran202608/blob/main/20260810-b8izqen9.md</a></p>
-<h3>1920_982</h3>
-<p>情绪真正发生在哪一刻？西工大团队让AI“看见”情绪峰值<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/guangming202607/blob/main/1920_982.md">https://github.com/ticeilohoiyoh-afk/guangming202607/blob/main/1920_982.md</a></p>
-<h3>20260808-zn2ijs60</h3>
-<p>众安在线上半年净赚15.5亿元增132.2%，总保费微降0.6%<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/shenghuo202607/blob/main/20260808-zn2ijs60.md">https://github.com/ticeilohoiyoh-afk/shenghuo202607/blob/main/20260808-zn2ijs60.md</a></p>
-<h3>1704_031</h3>
-<p>近百件泰山主题作品亮相德州 画作与摄影同台“对话”<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/ziran202607/blob/main/1704_031.md">https://github.com/ticeilohoiyoh-afk/ziran202607/blob/main/1704_031.md</a></p>
-<h3>20260820-rnuesra7</h3>
-<p>镌刻青春入苍穹 哈尔滨青少年研制科普卫星奔赴太空<br><br>来源：<a href="https://github.com/9w79h87-cmd/caijing202608/blob/main/20260820-rnuesra7.md">https://github.com/9w79h87-cmd/caijing202608/blob/main/20260820-rnuesra7.md</a></p>
-<h3>20260802_r5e24</h3>
-<p>刘国中出席第十一届亚太经合组织粮食安全部长级会议开幕式并致辞<br><br>来源：<a href="https://github.com/9w79h87-cmd/fangchan202608/blob/main/20260802_r5e24.md">https://github.com/9w79h87-cmd/fangchan202608/blob/main/20260802_r5e24.md</a></p>
-<h3>20260811-tnu00m89</h3>
-<p>海南产经新观察：文昌锚定2030年形成航班化商业发射能力<br><br>来源：<a href="https://github.com/9w79h87-cmd/jiankang202608/blob/main/20260811-tnu00m89.md">https://github.com/9w79h87-cmd/jiankang202608/blob/main/20260811-tnu00m89.md</a></p>
-<h3>20260815-xq44aqvk</h3>
-<p>“最强厄尔尼诺”来袭，全球粮食供给敲响警钟！种植链集体暴涨，农牧渔板块全天猛攻！<br><br>来源：<a href="https://github.com/9w79h87-cmd/keji202608/blob/main/20260815-xq44aqvk.md">https://github.com/9w79h87-cmd/keji202608/blob/main/20260815-xq44aqvk.md</a></p>
-<h3>20260822-vhx91h2e</h3>
-<p>王昊内部晋升中意人寿副总裁！曾供职于泰康、安联大众<br><br>来源：<a href="https://github.com/9w79h87-cmd/meishi202608/blob/main/20260822-vhx91h2e.md">https://github.com/9w79h87-cmd/meishi202608/blob/main/20260822-vhx91h2e.md</a></p>
-<h3>20260807-8noubcvs</h3>
-<p>（乡村行·看振兴）浙江庆元：“一只瓜蒌”带来乡村产业新蝶变<br><br>来源：<a href="https://github.com/9w79h87-cmd/shishang202608/blob/main/20260807-8noubcvs.md">https://github.com/9w79h87-cmd/shishang202608/blob/main/20260807-8noubcvs.md</a></p>
-<h3>20260813-9x6i44hb</h3>
-<p>刘国中出席第十一届亚太经合组织粮食安全部长级会议开幕式并致辞<br><br>来源：<a href="https://github.com/9w79h87-cmd/wenhua202608/blob/main/20260813-9x6i44hb.md">https://github.com/9w79h87-cmd/wenhua202608/blob/main/20260813-9x6i44hb.md</a></p>
-<h3>20260817-kfgxa0wd</h3>
-<p>半年狂赚223亿！光模块三巨头中报全景：AI算力业绩兑现，高景气向2027年延伸<br><br>来源：<a href="https://github.com/9w79h87-cmd/yinyue202608/blob/main/20260817-kfgxa0wd.md">https://github.com/9w79h87-cmd/yinyue202608/blob/main/20260817-kfgxa0wd.md</a></p>
-<h3>20260824-u0hn5knt</h3>
-<p>现场视频！驻香港部队组织第29次建制单位轮换<br><br>来源：<a href="https://github.com/9w79h87-cmd/yule202608/blob/main/20260824-u0hn5knt.md">https://github.com/9w79h87-cmd/yule202608/blob/main/20260824-u0hn5knt.md</a></p>
-<h3>20260821-q7refqlz</h3>
-<p>第四期鲁迅文学院残疾人作家研修班开班<br><br>来源：<a href="https://github.com/adelinafreyjatlhgja6901-tech/guangming202608/blob/main/20260821-q7refqlz.md">https://github.com/adelinafreyjatlhgja6901-tech/guangming202608/blob/main/20260821-q7refqlz.md</a></p>
-<h3>20260816-gg43i5y3</h3>
-<p>半年狂赚223亿！光模块三巨头中报全景：AI算力业绩兑现，高景气向2027年延伸<br><br>来源：<a href="https://github.com/adelinafreyjatlhgja6901-tech/wenhua202608/blob/main/20260816-gg43i5y3.md">https://github.com/adelinafreyjatlhgja6901-tech/wenhua202608/blob/main/20260816-gg43i5y3.md</a></p>
-<h3>20260810-vhkrsa26</h3>
-<p>水利部和中国气象局联合发布橙色山洪灾害气象预警<br><br>来源：<a href="https://github.com/adelinafreyjatlhgja6901-tech/ziran202608/blob/main/20260810-vhkrsa26.md">https://github.com/adelinafreyjatlhgja6901-tech/ziran202608/blob/main/20260810-vhkrsa26.md</a></p>
-<h3>20260803_u6we7</h3>
-<p>近百件泰山主题作品亮相德州 画作与摄影同台“对话”<br><br>来源：<a href="https://github.com/adelynmikaelakcgnmt0762-spec/keji202608/blob/main/20260803_u6we7.md">https://github.com/adelynmikaelakcgnmt0762-spec/keji202608/blob/main/20260803_u6we7.md</a></p>
-<h3>20260823-pu0dtqlb</h3>
-<p>银川至巴彦浩特铁路开启静态验收<br><br>来源：<a href="https://github.com/adelynmikaelakcgnmt0762-spec/wenhua202608/blob/main/20260823-pu0dtqlb.md">https://github.com/adelynmikaelakcgnmt0762-spec/wenhua202608/blob/main/20260823-pu0dtqlb.md</a></p>
-<h3>20260818-t44rudop</h3>
-<p>“最强厄尔尼诺”来袭，全球粮食供给敲响警钟！种植链集体暴涨，农牧渔板块全天猛攻！<br><br>来源：<a href="https://github.com/adelynmikaelakcgnmt0762-spec/ziran202608/blob/main/20260818-t44rudop.md">https://github.com/adelynmikaelakcgnmt0762-spec/ziran202608/blob/main/20260818-t44rudop.md</a></p>
+<h3>20260826-01nwfnp7</h3>
+<p>特朗普称美国正在密切关注伊朗的“镐山”<br><br>来源：<a href="https://github.com/ero9esx-creator/fangchan202608/blob/main/20260826-01nwfnp7.md">https://github.com/ero9esx-creator/fangchan202608/blob/main/20260826-01nwfnp7.md</a></p>
+<h3>20260826-fbku9dok</h3>
+<p>【滔滔两岸潮】从台积电辞职到深圳创业 台湾“羽球少年”大陆圆梦<br><br>来源：<a href="https://github.com/mejiastanle/msdfe52gs/blob/main/20260826-fbku9dok.md">https://github.com/mejiastanle/msdfe52gs/blob/main/20260826-fbku9dok.md</a></p>
+<h3>20260826-vsovvsck</h3>
+<p>摩根士丹利：五大云巨头与英伟达等AI相关表外承诺超过3.1万亿美元<br><br>来源：<a href="https://github.com/asadw0454/2026chuntian/blob/main/20260826-vsovvsck.md">https://github.com/asadw0454/2026chuntian/blob/main/20260826-vsovvsck.md</a></p>
+<h3>20260826-5czvbwae</h3>
+<p>沪港数字合作成果丰硕 将深化数据标准对接<br><br>来源：<a href="https://github.com/kategeorgiaxtgxfl9771-lab/xinwen202608/blob/main/20260826-5czvbwae.md">https://github.com/kategeorgiaxtgxfl9771-lab/xinwen202608/blob/main/20260826-5czvbwae.md</a></p>
+<h3>20260826-fazmo7ls</h3>
+<p>拜登任内国家债务增加8万亿美元，位列第三大支出型总统，第一名你或许猜得到<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/yinyue202607/blob/main/20260826-fazmo7ls.md">https://github.com/ticeilohoiyoh-afk/yinyue202607/blob/main/20260826-fazmo7ls.md</a></p>
+<h3>20260826-xahs7phc</h3>
+<p>邓晓峰，40亿元重仓两大周期股<br><br>来源：<a href="https://github.com/dmwke4-ops/lvyou202608/blob/main/20260826-xahs7phc.md">https://github.com/dmwke4-ops/lvyou202608/blob/main/20260826-xahs7phc.md</a></p>
+<h3>20260826-d8hdazad</h3>
+<p>OpenAI称自研AI芯片测试表现超越英伟达GB300<br><br>来源：<a href="https://github.com/mejiastanle/20260718_06/blob/main/20260826-d8hdazad.md">https://github.com/mejiastanle/20260718_06/blob/main/20260826-d8hdazad.md</a></p>
+<h3>20260826-ms5vlahm</h3>
+<p>广东拥抱AI 助力流行音乐创作<br><br>来源：<a href="https://github.com/asadw0454/20260718_03/blob/main/20260826-ms5vlahm.md">https://github.com/asadw0454/20260718_03/blob/main/20260826-ms5vlahm.md</a></p>
+<h3>20260826-26h95fdq</h3>
+<p>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”<br><br>来源：<a href="https://github.com/joannaaarnamjvstl1553-ship-it/ziran202608/blob/main/20260826-26h95fdq.md">https://github.com/joannaaarnamjvstl1553-ship-it/ziran202608/blob/main/20260826-26h95fdq.md</a></p>
+<h3>20260826-daqbb5gp</h3>
+<p>迪克体育二季度业绩低于预期，下调全年指引，盘前大跌<br><br>来源：<a href="https://github.com/stellakhaleesikpzujq5409-blip/xinwen202608/blob/main/20260826-daqbb5gp.md">https://github.com/stellakhaleesikpzujq5409-blip/xinwen202608/blob/main/20260826-daqbb5gp.md</a></p>
+<h3>20260812-lw8vu7sg</h3>
+<p>美国8月消费者信心下降 对商业和就业前景看法恶化<br><br>来源：<a href="https://github.com/theahayleendnoqd6760-ux/yinyue202608/blob/main/20260812-lw8vu7sg.md">https://github.com/theahayleendnoqd6760-ux/yinyue202608/blob/main/20260812-lw8vu7sg.md</a></p>
+<h3>20260811-8cejvckq</h3>
+<p>西藏山南贡嘎县赛马暨文化旅游活动启幕<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/caodi202607/blob/main/20260811-8cejvckq.md">https://github.com/ticeilohoiyoh-afk/caodi202607/blob/main/20260811-8cejvckq.md</a></p>
+<h3>1816_962</h3>
+<p>欧洲债市：多个期限的欧债收益率跌至逾一周低位 受油价下跌影响<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/shenghuo202607/blob/main/1816_962.md">https://github.com/ticeilohoiyoh-afk/shenghuo202607/blob/main/1816_962.md</a></p>
+<h3>20260808-68wl2rlt</h3>
+<p>美国消费者信心降至七个月低点 对营商环境和就业前景看法恶化<br><br>来源：<a href="https://github.com/ticeilohoiyoh-afk/yinyue202607/blob/main/20260808-68wl2rlt.md">https://github.com/ticeilohoiyoh-afk/yinyue202607/blob/main/20260808-68wl2rlt.md</a></p>
+<h3>0521_010</h3>
+<p>2026年度电影总票房突破275亿！《欢迎来龙餐馆》公布全球上映计划<br><br>来源：<a href="https://github.com/9w79h87-cmd/caijing202608/blob/main/0521_010.md">https://github.com/9w79h87-cmd/caijing202608/blob/main/0521_010.md</a></p>
+<h3>20260810-bdqpmu73</h3>
+<p>摩根士丹利：五大云巨头与英伟达等AI相关表外承诺超过3.1万亿美元<br><br>来源：<a href="https://github.com/9w79h87-cmd/dianying202608/blob/main/20260810-bdqpmu73.md">https://github.com/9w79h87-cmd/dianying202608/blob/main/20260810-bdqpmu73.md</a></p>
+<h3>20260815-5v4ukhxx</h3>
+<p>马丁马里埃塔完成对Lhoist北美业务交割，成为美国领先石灰石产品生产商<br><br>来源：<a href="https://github.com/9w79h87-cmd/guangming202608/blob/main/20260815-5v4ukhxx.md">https://github.com/9w79h87-cmd/guangming202608/blob/main/20260815-5v4ukhxx.md</a></p>
+<h3>20260821-0mznqnt6</h3>
+<p>广东拥抱AI 助力流行音乐创作<br><br>来源：<a href="https://github.com/9w79h87-cmd/jiaoyu202608/blob/main/20260821-0mznqnt6.md">https://github.com/9w79h87-cmd/jiaoyu202608/blob/main/20260821-0mznqnt6.md</a></p>
+<h3>20260801_qa3rl</h3>
+<p>中印边界问题特别代表在北京举行会晤<br><br>来源：<a href="https://github.com/9w79h87-cmd/meishi202608/blob/main/20260801_qa3rl.md">https://github.com/9w79h87-cmd/meishi202608/blob/main/20260801_qa3rl.md</a></p>
+<h3>20260810-jcrbv1qo</h3>
+<p>美军机降落莫斯科？克宫回应<br><br>来源：<a href="https://github.com/9w79h87-cmd/shenghuo202608/blob/main/20260810-jcrbv1qo.md">https://github.com/9w79h87-cmd/shenghuo202608/blob/main/20260810-jcrbv1qo.md</a></p>
+<h3>20260815-5xwvns40</h3>
+<p>一名在韩失踪中国公民遇害 嫌疑人已被捕<br><br>来源：<a href="https://github.com/9w79h87-cmd/tiyu202608/blob/main/20260815-5xwvns40.md">https://github.com/9w79h87-cmd/tiyu202608/blob/main/20260815-5xwvns40.md</a></p>
+<h3>20260821-0lcfodie</h3>
+<p>马龙邀请台湾青年“登陆”：“大陆适合每一位热爱运动的年轻人”<br><br>来源：<a href="https://github.com/9w79h87-cmd/xinwen202608/blob/main/20260821-0lcfodie.md">https://github.com/9w79h87-cmd/xinwen202608/blob/main/20260821-0lcfodie.md</a></p>
+<h3>20260801_k3i4c</h3>
+<p>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”<br><br>来源：<a href="https://github.com/9w79h87-cmd/yule202608/blob/main/20260801_k3i4c.md">https://github.com/9w79h87-cmd/yule202608/blob/main/20260801_k3i4c.md</a></p>
+<h3>20260817-a20je0xs</h3>
+<p>卡尼等额反击特朗普 加拿大将对美国家具和钢铝征收50%的关税<br><br>来源：<a href="https://github.com/adelinafreyjatlhgja6901-tech/caodi202608/blob/main/20260817-a20je0xs.md">https://github.com/adelinafreyjatlhgja6901-tech/caodi202608/blob/main/20260817-a20je0xs.md</a></p>
+<h3>20260810-weuq6wxl</h3>
+<p>一名在韩失踪中国公民遇害 嫌疑人已被捕<br><br>来源：<a href="https://github.com/adelinafreyjatlhgja6901-tech/shenghuo202608/blob/main/20260810-weuq6wxl.md">https://github.com/adelinafreyjatlhgja6901-tech/shenghuo202608/blob/main/20260810-weuq6wxl.md</a></p>
+<h3>20260803_clt7u</h3>
+<p>明起停牌！002274，拟易主<br><br>来源：<a href="https://github.com/adelinafreyjatlhgja6901-tech/yinyue202608/blob/main/20260803_clt7u.md">https://github.com/adelinafreyjatlhgja6901-tech/yinyue202608/blob/main/20260803_clt7u.md</a></p>
+<h3>20260822-q07g06pa</h3>
+<p>美国8月消费者信心下降 对商业和就业前景看法恶化<br><br>来源：<a href="https://github.com/adelynmikaelakcgnmt0762-spec/caodi202608/blob/main/20260822-q07g06pa.md">https://github.com/adelynmikaelakcgnmt0762-spec/caodi202608/blob/main/20260822-q07g06pa.md</a></p>
+<h3>20260816-tfajmn7z</h3>
+<p>马龙邀请台湾青年“登陆”：“大陆适合每一位热爱运动的年轻人”<br><br>来源：<a href="https://github.com/adelynmikaelakcgnmt0762-spec/shenghuo202608/blob/main/20260816-tfajmn7z.md">https://github.com/adelynmikaelakcgnmt0762-spec/shenghuo202608/blob/main/20260816-tfajmn7z.md</a></p>
+<h3>20260810-qalkugr1</h3>
+<p>Anthropic或将向投资者披露，潜在市场收入规模超30万亿美元<br><br>来源：<a href="https://github.com/adelynmikaelakcgnmt0762-spec/yinyue202608/blob/main/20260810-qalkugr1.md">https://github.com/adelynmikaelakcgnmt0762-spec/yinyue202608/blob/main/20260810-qalkugr1.md</a></p>
+<h3>20260802_v3mjg</h3>
+<p>OpenAI称自研AI芯片测试表现超越英伟达GB300<br><br>来源：<a href="https://github.com/adleycatalinawxxnqj0188-byte/guangming202608/blob/main/20260802_v3mjg.md">https://github.com/adleycatalinawxxnqj0188-byte/guangming202608/blob/main/20260802_v3mjg.md</a></p>
 <h2>外链</h2>
-<h3>中国进出口银行董事长陈怀宇在柬埔寨开展工作调研</h3>
-http://www.hhx-micro.com/index/6524076.html<br>
-<h3>保费增长12%、利润暴增170%！银行系险企的盈利“剪刀差”能撑多久？</h3>
-http://website-review-id201.mq163.com/index/8362526.html<br>
-<h3>银川至巴彦浩特铁路开启静态验收</h3>
-http://shmorui.com/index/1485080.html<br>
-<h3>湖北建始女儿会游园寻缘 沉浸式品读土家婚恋浪漫</h3>
-http://www.021ocd.com/index/4352556.html<br>
-<h3>ETF日报：医药板块估值扎实、细分创新药赛道催化密集，关注恒生生物科技ETF、科创创新药ETF</h3>
-http://sq000.com/index/8955634.html<br>
-<h3>长城基金汪立：市场有望迎来“金秋行情”，关注科技、制造与大金融</h3>
-http://www.chggb.com/index/7742126.html<br>
-<h3>从保境安民到非遗名录 湖南城步百年苗拳薪火传</h3>
-http://www.chujucn.cn/index/85922888.sHtML<br>
-<h3>近百件泰山主题作品亮相德州 画作与摄影同台“对话”</h3>
-http://stjiankangjia.com/index/2563748.html<br>
-<h3>从保境安民到非遗名录 湖南城步百年苗拳薪火传</h3>
-http://www.future-ai.cn/index/74410818.sHtML<br>
-<h3>（乡村行·看振兴）浙江庆元：“一只瓜蒌”带来乡村产业新蝶变</h3>
-http://cyw.zsjb168.com/index/7867685.html<br>
-<h3>镌刻青春入苍穹 哈尔滨青少年研制科普卫星奔赴太空</h3>
-http://old.51ggb.cn/index/7033808.html<br>
-<h3>刘国中出席第十一届亚太经合组织粮食安全部长级会议开幕式并致辞</h3>
-http://ol.nju-ys.com/index/2610460.html<br>
-<h3>数字人民币再扩容，楚天龙3连板！金融科技板块近1年回撤39%后估值处低位，能否逆袭？</h3>
-http://www.sindee.com.cn/index/3589883.html<br>
-<h3>中报再点火，CXO全线爆发！药明合联、凯莱英绩后狂飙，港股通医疗ETF（159137）爆量大涨，成交额激增超300%</h3>
-http://www.ec-h.com.cn/index/4581427.html<br>
-<h3>水利部和中国气象局联合发布橙色山洪灾害气象预警</h3>
-http://www.nocea.org.cn/index/3845830.html<br>
-<h3>“赛考斯”：亲眼见到这片树林、摸到了树，是我这趟旅程最大的惊喜</h3>
-http://www.jdzs80.com/index/7578657.html<br>
-<h3>四川省人大常委会原委员、经济委员会原主任委员刘中伯被“双开”</h3>
-http://www.5656pk.com/index/8191811.html<br>
-<h3>港澳青年重走长征路研学活动在江西于都举行</h3>
-http://cqqwzx.com/index/5965450.html<br>
-<h3>水利部和中国气象局联合发布橙色山洪灾害气象预警</h3>
-http://chggb.cn/index/5186129.html<br>
-<h3>世界人形机器人运动会25日安排17项比赛 街舞等新项目亮相</h3>
-http://wanlil01.enjoykj.com/index/3724937.html<br>
-<h3>中国进出口银行董事长陈怀宇在柬埔寨开展工作调研</h3>
-http://www.nju-ys.com/index/6031273.html<br>
-<h3>海南产经新观察：文昌锚定2030年形成航班化商业发射能力</h3>
-http://changning.mq163.net/index/7757648.html<br>
-<h3>中报再点火，CXO全线爆发！药明合联、凯莱英绩后狂飙，港股通医疗ETF（159137）爆量大涨，成交额激增超300%</h3>
-http://www.cn.anteky.com/index/1749823.html<br>
-<h3>“紫檀”在海南省昌江县沿海登陆</h3>
-http://www.blsrq.cn/index/4585678.html<br>
-<h3>从“配角”到“搭档”：商业健康险的“十五五”新周期</h3>
-http://stjiankangjia.com/index/5796216.html<br>
-<h3>喝了暴晒过的瓶装水会致癌？夏季车内存水注意这些风险→</h3>
-http://www.yfwl666.com/index/5804572.html<br>
-<h3>港澳青年重走长征路研学活动在江西于都举行</h3>
-http://www.cn-o.com/index/1798040.html<br>
-<h3>王昊内部晋升中意人寿副总裁！曾供职于泰康、安联大众</h3>
-http://www.u-coat.cn/index/6171187.html<br>
-<h3>港澳青年重走长征路研学活动在江西于都举行</h3>
-http://www.aiyounuo.net/index/0357867.html<br>
-<h3>ETF日报：医药板块估值扎实、细分创新药赛道催化密集，关注恒生生物科技ETF、科创创新药ETF</h3>
-http://www.gdzkfa.com/index/7764583.html<br>
-<h3>长城基金汪立：市场有望迎来“金秋行情”，关注科技、制造与大金融</h3>
-http://qiannvyou.cn/index/4090299.html<br>
-<h3>从“配角”到“搭档”：商业健康险的“十五五”新周期</h3>
-http://yingjiang-hk.com/index/5830702.html<br>
-<h3>四川省人大常委会原委员、经济委员会原主任委员刘中伯被“双开”</h3>
-http://hsetcl.com/index/5822081.html<br>
-<h3>特朗普连晒三张与金正恩合影 韩媒：再释放重启朝美对话信号</h3>
-http://www.glycanlink.com/index/2207701.html<br>
-<h3>刘国中出席第十一届亚太经合组织粮食安全部长级会议开幕式并致辞</h3>
-http://kehu.net.cn/index/0976423.html<br>
-<h3>中国进出口银行董事长陈怀宇在柬埔寨开展工作调研</h3>
-http://www.kxyjchina.com/index/3509587.html<br>
-<h3>赛场聚同心健体融文脉 天津北辰擦亮民族体育交融名片</h3>
-http://51tl.cc/index/2396435.html<br>
-<h3>水利部和中国气象局联合发布橙色山洪灾害气象预警</h3>
-http://sh-kfly.com/index/5901450.html<br>
-<h3>净利大增209%！全球覆铜板龙头建滔系大涨，港股硬科技强势反攻</h3>
-http://www.365tl.cn/index/3147530.html<br>
-<h3>湖南江永“稻藠轮作”激活秋种 一地双收赋能瑶乡振兴</h3>
-http://www.empersys.com/index/5295409.html<br>
-<h3>王昊内部晋升中意人寿副总裁！曾供职于泰康、安联大众</h3>
-http://cqqwzx.com/index/5626310.html<br>
-<h3>中报业绩点燃行情！CXO爆发，药明合联、凯莱英绩后狂飙！农牧渔重拾攻势！数字人民币再扩容！</h3>
-http://www.hsetcl.com/index/2839185.html<br>
-<h3>镌刻青春入苍穹 哈尔滨青少年研制科普卫星奔赴太空</h3>
-http://sdp-cn.com/index/0852319.html<br>
-<h3>现场视频！驻香港部队组织第29次建制单位轮换</h3>
-http://lpcgxf.com/index/9714876.html<br>
-<h3>中国进出口银行董事长陈怀宇在柬埔寨开展工作调研</h3>
-http://www.vmeca.net.cn/index/2006987.html<br>
-<h3>王昊内部晋升中意人寿副总裁！曾供职于泰康、安联大众</h3>
-http://corues.cn/index/3421202.html<br>
-<h3>航旅融合激活湖南张家界暑期文旅热潮</h3>
-http://hanveygift.com/index/4786597.html<br>
-<h3>海南产经新观察：琼州海峡滚装第二通道南岸发力港产城融合</h3>
-http://www.shjiyue.com/index/5897155.html<br>
-<h3>“紫檀”在海南省昌江县沿海登陆</h3>
-http://www.jsdisfly.com/index/0087916.html<br>
-<h3>湖南江永“稻藠轮作”激活秋种 一地双收赋能瑶乡振兴</h3>
-http://www.tjdengfeng.com/index/8731558.html<br>
-<h3>航旅融合激活湖南张家界暑期文旅热潮</h3>
-http://www.xuzhoubaojie.com/index/66877903.sHtML<br>
-<h3>“赛考斯”：亲眼见到这片树林、摸到了树，是我这趟旅程最大的惊喜</h3>
-http://www.03dd.com/index/02625489.sHtML<br>
-<h3>海南产经新观察：文昌锚定2030年形成航班化商业发射能力</h3>
-http://www.zjzjw168.com/index/9284595.html<br>
-<h3>开局起步“十五五”：海南渔业第一大县向现代海洋经济发展新高地迈进</h3>
-http://m.jzhtm.com/index/2709430.html<br>
-<h3>重庆唯一具备周调节能力的抽水蓄能电站项目取得关键节点突破</h3>
-http://bjboruicx.com/index/8599113.html<br>
-<h3>海南产经新观察：琼州海峡滚装第二通道南岸发力港产城融合</h3>
-http://sssladder.com/index/0610415.html<br>
-<h3>中国进出口银行董事长陈怀宇在柬埔寨开展工作调研</h3>
-http://www.unishine-comp.com/index/1412234.html<br>
-<h3>世界人形机器人运动会25日安排17项比赛 街舞等新项目亮相</h3>
-http://js.water-cd.com/index/5205449.html<br>
-<h3>众安在线上半年净赚15.5亿元增132.2%，总保费微降0.6%</h3>
-http://www.yilevisa.com/index/0567203.html<br>
-<h3>现场视频！驻香港部队组织第29次建制单位轮换</h3>
-http://www.putube.net/index/6746117.html<br>
-<h3>世界人形机器人运动会25日安排17项比赛 街舞等新项目亮相</h3>
-http://www.wan-peng.com/index/3679097.html<br>
-<h3>众安在线上半年净赚15.5亿元增132.2%，总保费微降0.6%</h3>
-http://www.sindee.cn/index/7262026.html<br>
-<h3>刘国中出席第十一届亚太经合组织粮食安全部长级会议开幕式并致辞</h3>
-http://scfme.cn/index/4133621.html<br>
-<h3>第四期鲁迅文学院残疾人作家研修班开班</h3>
-http://www.hollnen.cn/index/5336013.html<br>
-<h3>银川至巴彦浩特铁路开启静态验收</h3>
-http://hanvey.hk/index/4397325.html<br>
-<h3>特朗普连晒三张与金正恩合影 韩媒：再释放重启朝美对话信号</h3>
-http://hr.ysshj.com.cn/index/1141157.html<br>
-<h3>赛场聚同心健体融文脉 天津北辰擦亮民族体育交融名片</h3>
-http://brother-chn.com/index/9602420.html<br>
-<h3>第四期鲁迅文学院残疾人作家研修班开班</h3>
-http://www.5pvc.com/index/0632660.html<br>
-<h3>“灾难”！高市“蟑螂故事”让外国网民笑翻了</h3>
-http://rongbeish.com/index/7648298.html<br>
-<h3>银川至巴彦浩特铁路开启静态验收</h3>
-http://dzqd.cn/index/1293524.html<br>
-<h3>特朗普连晒三张与金正恩合影 韩媒：再释放重启朝美对话信号</h3>
-http://jsdisfly.com/index/9591903.html<br>
-<h3>四川航空集团有限责任公司原董事长石祖义被“双开”</h3>
-http://014.360webs.cn/index/9382882.html<br>
-<h3>银川至巴彦浩特铁路开启静态验收</h3>
-http://www.shmiran.com/index/5736391.html<br>
-<h3>海南产经新观察：文昌锚定2030年形成航班化商业发射能力</h3>
-http://www.notachem.com/index/2911136.html<br>
-<h3>喝了暴晒过的瓶装水会致癌？夏季车内存水注意这些风险→</h3>
-http://net98.net/index/8036921.html<br>
-<h3>从“配角”到“搭档”：商业健康险的“十五五”新周期</h3>
-http://sofinest.com/index/2662152.html<br>
-<h3>现场视频！驻香港部队组织第29次建制单位轮换</h3>
-http://collect-as.com/index/1161349.html<br>
-<h3>湖南省直公积金新政施行 支持购房契税、维修资金提取</h3>
-http://avidamusictech.com/index/6944698.html<br>
-<h3>净利大增209%！全球覆铜板龙头建滔系大涨，港股硬科技强势反攻</h3>
-http://borui.sougo.net/index/0060177.html<br>
-<h3>喝了暴晒过的瓶装水会致癌？夏季车内存水注意这些风险→</h3>
-http://www.oyx.net.cn/index/9140822.html<br>
-<h3>“赛考斯”：亲眼见到这片树林、摸到了树，是我这趟旅程最大的惊喜</h3>
-http://yyhjzfp.zhonghetc.com/index/7279576.html<br>
-<h3>长城基金汪立：市场有望迎来“金秋行情”，关注科技、制造与大金融</h3>
-http://www.sofinest.com/index/6479060.html<br>
-<h3>半年狂赚223亿！光模块三巨头中报全景：AI算力业绩兑现，高景气向2027年延伸</h3>
-http://www.xiaoxiaomir.com/index/3629105.html<br>
-<h3>第四期鲁迅文学院残疾人作家研修班开班</h3>
-http://www.seamandiesel.com/index/1012213.html<br>
-<h3>终结营收三连跌！贵阳银行上半年增收不增利背后：加大减值计提，不良“双增”</h3>
-http://wanlil01.enjoykj.com/index/0948300.html<br>
-<h3>中报再点火，CXO全线爆发！药明合联、凯莱英绩后狂飙，港股通医疗ETF（159137）爆量大涨，成交额激增超300%</h3>
-http://www.sunflour.com.cn/index/3187935.html<br>
-<h3>第四期鲁迅文学院残疾人作家研修班开班</h3>
-http://www.youxiangmy.cn/index/0542542.html<br>
-<h3>“最强厄尔尼诺”来袭，全球粮食供给敲响警钟！种植链集体暴涨，农牧渔板块全天猛攻！</h3>
-http://www.eurospec.cn/index/4168451.html<br>
-<h3>“最强厄尔尼诺”来袭，全球粮食供给敲响警钟！种植链集体暴涨，农牧渔板块全天猛攻！</h3>
-http://www.nanfangtc.com/index/8793086.html<br>
-<h3>数字人民币再扩容，楚天龙3连板！金融科技板块近1年回撤39%后估值处低位，能否逆袭？</h3>
-http://airmanufactor.com/index/6108954.html<br>
-<h3>ETF日报：医药板块估值扎实、细分创新药赛道催化密集，关注恒生生物科技ETF、科创创新药ETF</h3>
-http://www.hzcycs.com/index/3882198.html<br>
-<h3>极致轮动如何破局？是时候重启哑铃策略了</h3>
-http://www.bjboruicx.com/index/2743241.html<br>
-<h3>从保境安民到非遗名录 湖南城步百年苗拳薪火传</h3>
-http://www.maimingimportandexport.com/index/0794137.html<br>
-<h3>重庆唯一具备周调节能力的抽水蓄能电站项目取得关键节点突破</h3>
-http://shzuoren.com.cn/index/1737405.html<br>
-<h3>湖南省直公积金新政施行 支持购房契税、维修资金提取</h3>
-http://www.haofengxs.com/index/0195278.html<br>
-<h3>湖南省直公积金新政施行 支持购房契税、维修资金提取</h3>
-http://www.aiyounuo.cn/index/9097378.html<br>
-<h3>有一种安全感，叫解放军来了！人民子弟兵抵达广西崇左抢险救灾 群众拍下感人一幕</h3>
-http://txzydz.com/index/5440739.html<br>
-<h3>“赛考斯”：亲眼见到这片树林、摸到了树，是我这趟旅程最大的惊喜</h3>
-http://www.coatingfocus.com/index/6982395.html<br>
-<h3>王昊内部晋升中意人寿副总裁！曾供职于泰康、安联大众</h3>
-http://epanhydraulics.com/index/1196480.html<br>
-<h3>有一种安全感，叫解放军来了！人民子弟兵抵达广西崇左抢险救灾 群众拍下感人一幕</h3>
-http://zjzjw168.com/index/9959526.html<br>
-<h3>众安在线上半年净赚15.5亿元增132.2%，总保费微降0.6%</h3>
-http://www.tjdengfeng.com/index/6943378.html<br>
-<h3>从保境安民到非遗名录 湖南城步百年苗拳薪火传</h3>
-http://www.gbshi.cn/index/5250756.html<br>
-<h3>重庆唯一具备周调节能力的抽水蓄能电站项目取得关键节点突破</h3>
-http://www.wxhtg.cn/index/1553644.html<br>
-<h3>开局起步“十五五”：海南渔业第一大县向现代海洋经济发展新高地迈进</h3>
-http://www.epanhydraulics.com/index/1243302.html<br>
-<h3>从保境安民到非遗名录 湖南城步百年苗拳薪火传</h3>
-http://www.76hqby.cn/index/73244315.sHtML<br>
-<h3>半年狂赚223亿！光模块三巨头中报全景：AI算力业绩兑现，高景气向2027年延伸</h3>
-http://website-review-id201.mq163.com/index/8849280.html<br>
-<h3>半年狂赚223亿！光模块三巨头中报全景：AI算力业绩兑现，高景气向2027年延伸</h3>
-http://www.liron.cn/index/7280286.html<br>
-<h3>世界人形机器人运动会25日安排17项比赛 街舞等新项目亮相</h3>
-http://www.52017.net/index/6348170.html<br>
-<h3>数字人民币再扩容，楚天龙3连板！金融科技板块近1年回撤39%后估值处低位，能否逆袭？</h3>
-http://en.shbjhx.com/index/7140900.html<br>
-<h3>浙江检察机关上线AI智能体 “智慧搭档”融入办案全链条</h3>
-http://www.wzhualiang.com/index/0122572.html<br>
-<h3>净利大增209%！全球覆铜板龙头建滔系大涨，港股硬科技强势反攻</h3>
-http://beiguopack.com/index/3599149.html<br>
-<h3>湖北建始女儿会游园寻缘 沉浸式品读土家婚恋浪漫</h3>
-http://www.yshcxz.com/index/5458810.html<br>
-<h3>现场视频！驻香港部队组织第29次建制单位轮换</h3>
-http://www.xzlzlgs.com/index/9897440.html<br>
-<h3>水利部和中国气象局联合发布橙色山洪灾害气象预警</h3>
-http://www.pmipneumatic.com/index/8033925.html<br>
-<h3>数字人民币再扩容，楚天龙3连板！金融科技板块近1年回撤39%后估值处低位，能否逆袭？</h3>
-http://yjee.com.cn/index/5217572.html<br>
-<h3>港澳青年重走长征路研学活动在江西于都举行</h3>
-http://www.u-coat.cn/index/2428327.html<br>
-<h3>第四期鲁迅文学院残疾人作家研修班开班</h3>
-http://www.huikaishun.com/index/3440463.html<br>
-<h3>海南产经新观察：琼州海峡滚装第二通道南岸发力港产城融合</h3>
-http://js.water-cd.com/index/5325780.html<br>
-<h3>开局起步“十五五”：海南渔业第一大县向现代海洋经济发展新高地迈进</h3>
-http://www.qddhjbz.com/index/3192776.html<br>
-<h3>现场视频！驻香港部队组织第29次建制单位轮换</h3>
-http://www.wuxibaomei.cn/index/5491348.html<br>
-<h3>“赛考斯”：亲眼见到这片树林、摸到了树，是我这趟旅程最大的惊喜</h3>
-http://www.ts-wtsrq.com/index/1318721.html<br>
-<h3>镌刻青春入苍穹 哈尔滨青少年研制科普卫星奔赴太空</h3>
-http://www.shshoulu.com/index/2168018.html<br>
-<h3>浙江检察机关上线AI智能体 “智慧搭档”融入办案全链条</h3>
-http://www.shbjhx.com/index/5677226.html<br>
-<h3>众安在线上半年净赚15.5亿元增132.2%，总保费微降0.6%</h3>
-http://www.5822222.com/index/7816128.html<br>
-<h3>特朗普连晒三张与金正恩合影 韩媒：再释放重启朝美对话信号</h3>
-http://cn-g.cn/index/2617292.html<br>
-<h3>锡林郭勒草原秋季打草进行时</h3>
-http://gdblowers.cn/index/6269605.html<br>
-<h3>第四期鲁迅文学院残疾人作家研修班开班</h3>
-http://xzhuasheng.com/index/4588473.html<br>
-<h3>浙江检察机关上线AI智能体 “智慧搭档”融入办案全链条</h3>
-http://www.cooteck.com/index/1221126.html<br>
-<h3>中国进出口银行董事长陈怀宇在柬埔寨开展工作调研</h3>
-http://www.morxin.com.cn/index/5687989.html<br>
-<h3>港澳青年重走长征路研学活动在江西于都举行</h3>
-http://www.racle-hyd.com/index/3615069.html<br>
-<h3>中国进出口银行董事长陈怀宇在柬埔寨开展工作调研</h3>
-http://www.tjanbao.com/index/5874218.html<br>
-<h3>从“配角”到“搭档”：商业健康险的“十五五”新周期</h3>
-http://www.scfme.cn/index/2248448.html<br>
-<h3>开局起步“十五五”：海南渔业第一大县向现代海洋经济发展新高地迈进</h3>
-http://www.cn-g.cn/index/1322844.html<br>
-<h3>数字人民币再扩容，楚天龙3连板！金融科技板块近1年回撤39%后估值处低位，能否逆袭？</h3>
-http://wan-peng.com/index/2866961.html<br>
-<h3>“灾难”！高市“蟑螂故事”让外国网民笑翻了</h3>
-http://www.pmipneumatic.com/index/8464194.html<br>
-<h3>海南产经新观察：琼州海峡滚装第二通道南岸发力港产城融合</h3>
-http://yylcjx.com/index/6622693.html<br>
-<h3>（乡村行·看振兴）浙江庆元：“一只瓜蒌”带来乡村产业新蝶变</h3>
-http://cdsplendor.com/index/7059794.html<br>
-<h3>中报业绩点燃行情！CXO爆发，药明合联、凯莱英绩后狂飙！农牧渔重拾攻势！数字人民币再扩容！</h3>
-http://www.focuslub.com/index/6369872.html<br>
-<h3>长城基金汪立：市场有望迎来“金秋行情”，关注科技、制造与大金融</h3>
-http://www.socomecair.com/index/6406904.html<br>
-<h3>赛场聚同心健体融文脉 天津北辰擦亮民族体育交融名片</h3>
-http://www.hypher.com.cn/index/2138706.html<br>
-<h3>从保境安民到非遗名录 湖南城步百年苗拳薪火传</h3>
-http://xwcl.com/index/4701090.html<br>
-<h3>从保境安民到非遗名录 湖南城步百年苗拳薪火传</h3>
-http://www.quanchengp.cn/index/0767522.html<br>
-<h3>极致轮动如何破局？是时候重启哑铃策略了</h3>
-http://www.mskeji.com.cn/index/8044274.html<br>
-<h3>喝了暴晒过的瓶装水会致癌？夏季车内存水注意这些风险→</h3>
-http://xzhuasheng.com/index/9822395.html<br>
-<h3>情绪真正发生在哪一刻？西工大团队让AI“看见”情绪峰值</h3>
-http://baoshan.mq163.net/index/4157889.html<br>
-<h3>四川省人大常委会原委员、经济委员会原主任委员刘中伯被“双开”</h3>
-http://www.lyuc.com.cn/index/4462308.html<br>
-<h3>重庆唯一具备周调节能力的抽水蓄能电站项目取得关键节点突破</h3>
-http://www.focuslub.com/index/8248269.html<br>
-<h3>从保境安民到非遗名录 湖南城步百年苗拳薪火传</h3>
-http://quanchengp.cn/index/3844041.html<br>
-<h3>海南产经新观察：琼州海峡滚装第二通道南岸发力港产城融合</h3>
-http://sawatech.com.cn/index/9063819.html<br>
-<h3>四川省人大常委会原委员、经济委员会原主任委员刘中伯被“双开”</h3>
-http://njhhkjgs.com/index/9530823.html<br>
-<h3>现场视频！驻香港部队组织第29次建制单位轮换</h3>
-http://www.gdzshqt.com/index/2326829.html<br>
-<h3>四川省人大常委会原委员、经济委员会原主任委员刘中伯被“双开”</h3>
-http://jdks.kleshuo.com/index/2699862.html<br>
-<h3>（乡村行·看振兴）浙江庆元：“一只瓜蒌”带来乡村产业新蝶变</h3>
-http://024.360webs.cn/index/1354070.html<br>
-<h3>“灾难”！高市“蟑螂故事”让外国网民笑翻了</h3>
-http://yingjiang-hk.com/index/0938161.html<br>
-<h3>刘国中出席第十一届亚太经合组织粮食安全部长级会议开幕式并致辞</h3>
-http://www.coatingfocus.com/index/7294893.html<br>
-<h3>刘国中出席第十一届亚太经合组织粮食安全部长级会议开幕式并致辞</h3>
-http://www.03dd.com/index/69438025.sHtML<br>
-<h3>第四期鲁迅文学院残疾人作家研修班开班</h3>
-http://wan-peng.com/index/8303216.html<br>
-<h3>海南产经新观察：文昌锚定2030年形成航班化商业发射能力</h3>
-http://qingpu.mq163.net/index/5231190.html<br>
-<h3>中报业绩点燃行情！CXO爆发，药明合联、凯莱英绩后狂飙！农牧渔重拾攻势！数字人民币再扩容！</h3>
-http://en.pnetewea.com/index/7453392.html<br>
-<h3>航旅融合激活湖南张家界暑期文旅热潮</h3>
-http://xwcl.com/index/5354922.html<br>
-<h3>第四期鲁迅文学院残疾人作家研修班开班</h3>
-http://www.shzuoren.com.cn/index/3787957.html<br>
-<h3>从保境安民到非遗名录 湖南城步百年苗拳薪火传</h3>
-http://xzhuasheng.com/index/3182029.html<br>
-<h3>海南产经新观察：文昌锚定2030年形成航班化商业发射能力</h3>
-http://www.sdstron.com/index/2368726.html<br>
-<h3>浙江检察机关上线AI智能体 “智慧搭档”融入办案全链条</h3>
-http://www.uright-bio.com/index/3344575.html<br>
-<h3>ETF日报：医药板块估值扎实、细分创新药赛道催化密集，关注恒生生物科技ETF、科创创新药ETF</h3>
-http://www.enshangwang.org/index/2674742.html<br>
-<h3>中国进出口银行董事长陈怀宇在柬埔寨开展工作调研</h3>
-http://www.itservice.com.cn/index/9728830.html<br>
-<h3>现场视频！驻香港部队组织第29次建制单位轮换</h3>
-http://www.tjstlh.cn/index/6755865.html<br>
-<h3>“紫檀”在海南省昌江县沿海登陆</h3>
-http://jcmtl.yshixun.com/index/2883650.html<br>
-<h3>赛场聚同心健体融文脉 天津北辰擦亮民族体育交融名片</h3>
-http://www.yixiebaike.com/index/6539826.html<br>
-<h3>众安在线上半年净赚15.5亿元增132.2%，总保费微降0.6%</h3>
-http://www.volox-agv.cn/index/3117662.html<br>
-<h3>情绪真正发生在哪一刻？西工大团队让AI“看见”情绪峰值</h3>
-http://www.gdzkfa.com/index/5872779.html<br>
-<h3>赛场聚同心健体融文脉 天津北辰擦亮民族体育交融名片</h3>
-http://wuxihaotong.cn/index/2913857.html<br>
-<h3>半年狂赚223亿！光模块三巨头中报全景：AI算力业绩兑现，高景气向2027年延伸</h3>
-http://www.wxhtg.cn/index/7462600.html<br>
-<h3>有一种安全感，叫解放军来了！人民子弟兵抵达广西崇左抢险救灾 群众拍下感人一幕</h3>
-http://www.8yy3.com/index/6915631.html<br>
-<h3>“灾难”！高市“蟑螂故事”让外国网民笑翻了</h3>
-http://www.socomecair.com/index/5787202.html<br>
-<h3>海南产经新观察：文昌锚定2030年形成航班化商业发射能力</h3>
-http://www.shmorui.com/index/8875312.html<br>
-<h3>“紫檀”在海南省昌江县沿海登陆</h3>
-http://acesolutions.com.cn/index/7415720.html<br>
-<h3>航旅融合激活湖南张家界暑期文旅热潮</h3>
-http://www.pmipneumatic.com/index/3020030.html<br>
-<h3>江永女书研究院揭牌 非遗瑰宝开启学术活化新篇章</h3>
-http://www.brother-chn.com/index/6853052.html<br>
-<h3>航旅融合激活湖南张家界暑期文旅热潮</h3>
-http://sh-wecome.com/index/2097728.html<br>
+<h3>软件板块相对芯片板块走出创纪录强势行情</h3>
+http://www.lzjchina.com/index/4968825.html<br>
+<h3>摩根士丹利：五大云巨头与英伟达等AI相关表外承诺超过3.1万亿美元</h3>
+http://www.huikaishun.com/index/2818633.html<br>
+<h3>美国消费者信心降至七个月低点 对营商环境和就业前景看法恶化</h3>
+http://www.yunchengguoji.com/index/7051047.html<br>
+<h3>拜登任内国家债务增加8万亿美元，位列第三大支出型总统，第一名你或许猜得到</h3>
+http://www.mskeji.com.cn/index/9255611.html<br>
+<h3>加拿大宣布对美国商品征收报复性关税</h3>
+http://intknife.com/index/4784202.html<br>
+<h3>苹果发布升级版Mac mini和Mac Studio 为新款iPhone预热</h3>
+http://www.qslv.net/index/0723107.html<br>
+<h3>第十一届APEC粮食安全部长级会议在浙江杭州举行</h3>
+http://aliexpress.cbechero.net/index/0900719.html<br>
+<h3>马丁马里埃塔完成对Lhoist北美业务交割，成为美国领先石灰石产品生产商</h3>
+http://longpaiseed.com/index/1024264.html<br>
+<h3>广西9条河流超警 左江崇左水文站超警7.59米</h3>
+http://tvpusher.com/index/7118335.html<br>
+<h3>苹果发布升级版Mac mini和Mac Studio 为新款iPhone预热</h3>
+http://www.tungsten-molybdenum.net.cn/index/8036436.html<br>
+<h3>广东拥抱AI 助力流行音乐创作</h3>
+http://www.chggb.com/index/3818700.html<br>
+<h3>Anthropic或将向投资者披露，潜在市场收入规模超30万亿美元</h3>
+http://qingdao.seohaosou.cn/index/6765270.html<br>
+<h3>波士顿联储行长称维持利率不变取决于通胀改善</h3>
+http://www.quelongmotor.com/index/6758411.html<br>
+<h3>苹果发布升级版Mac mini和Mac Studio 为新款iPhone预热</h3>
+http://www.sincere-china.com.cn/index/0586956.html<br>
+<h3>邓晓峰，40亿元重仓两大周期股</h3>
+http://www.qdgxdq.com/index/0980239.html<br>
+<h3>广西9条河流超警 左江崇左水文站超警7.59米</h3>
+http://www.ntcar.cn/index/6980850.html<br>
+<h3>2026年度电影总票房突破275亿！《欢迎来龙餐馆》公布全球上映计划</h3>
+http://www.xxhcom.cn/index/7715626.html<br>
+<h3>搭载华为乾崑智驾与专属越野底盘 北京越野泰钽700售价24.98万元起</h3>
+http://def-online.com.cn/index/7479745.html<br>
+<h3>广东拥抱AI 助力流行音乐创作</h3>
+http://chinaris.cn/index/2350243.html<br>
+<h3>广东拥抱AI 助力流行音乐创作</h3>
+http://scfme.cn/index/3734619.html<br>
+<h3>广东拥抱AI 助力流行音乐创作</h3>
+http://bao-mei.cn/index/0453838.html<br>
+<h3>俄远东一在建天然气化工项目发生火灾致1人死亡百余人受伤</h3>
+http://www.u-coat.cn/index/0394784.html<br>
+<h3>通胀担忧降温，资金轮动涌入科技股</h3>
+http://sync.ytone.com.cn/index/5936464.html<br>
+<h3>马丁马里埃塔完成对Lhoist北美业务交割，成为美国领先石灰石产品生产商</h3>
+http://www.mskeji.com.cn/index/4866961.html<br>
+<h3>加拿大宣布对美国商品征收报复性关税</h3>
+http://www.qilongpaper.com/index/4264500.html<br>
+<h3>中印边界问题特别代表在北京举行会晤</h3>
+http://kilometerxinli.com/index/6125325.html<br>
+<h3>通胀担忧降温，资金轮动涌入科技股</h3>
+http://xuhui.mq163.net/index/9908641.html<br>
+<h3>纪念红军长征胜利90周年 百余名港澳青年于都重走长征路</h3>
+http://www.w312.com/index/34444969.sHtML<br>
+<h3>特朗普称美国正在密切关注伊朗的“镐山”</h3>
+http://www.acesolutions.com.cn/index/2888207.html<br>
+<h3>广东拥抱AI 助力流行音乐创作</h3>
+http://qizichina.com/index/9371548.html<br>
+<h3>马龙邀请台湾青年“登陆”：“大陆适合每一位热爱运动的年轻人”</h3>
+http://016.360webs.cn/index/0165391.html<br>
+<h3>《富爸爸穷爸爸》作者警告持有这类“虚假资产”的人将会变穷</h3>
+http://www.acesolutions.com.cn/index/7851133.html<br>
+<h3>美国7月新屋销售降至六个月低点 抵押贷款利率高企抑制需求</h3>
+http://jszjbafw.com/index/4519499.html<br>
+<h3>FDA核准罗氏与礼来pTau217血液检测，同一阈值同时用于纳入和排除淀粉样病理</h3>
+http://www.xiaoxiaomir.com/index/7468734.html<br>
+<h3>中印边界问题特别代表在北京举行会晤</h3>
+http://hanvey.hk/index/5552380.html<br>
+<h3>美国7月新屋销售降至六个月低点 抵押贷款利率高企抑制需求</h3>
+http://www.nhjsy.com/index/0735310.html<br>
+<h3>波士顿联储行长称维持利率不变取决于通胀改善</h3>
+http://www.sincere-china.com.cn/index/5265641.html<br>
+<h3>湖北形成“海陆空多向联动”的国际物流格局</h3>
+http://www.quelongmotor.com/index/9925241.html<br>
+<h3>百只人工繁育绿海龟在广东惠东放归大海</h3>
+http://wuxihaotong.cn/index/3512251.html<br>
+<h3>马来西亚热浪来袭 多地发布高温警报</h3>
+http://luoxuehui.cn/index/4682225.html<br>
+<h3>南宁海事局使用重载无人机成功救助3艘遇险船舶</h3>
+http://hongkou.mq163.net/index/8837629.html<br>
+<h3>广西9条河流超警 左江崇左水文站超警7.59米</h3>
+http://www.wxch.cc/index/5077397.html<br>
+<h3>加拿大宣布对美国商品征收报复性关税</h3>
+http://yyhjzfp.zhonghetc.com/index/0186577.html<br>
+<h3>沪港数字合作成果丰硕 将深化数据标准对接</h3>
+http://www.luancolor.com/index/8289581.html<br>
+<h3>中印边界问题特别代表在北京举行会晤</h3>
+http://www.kleshuo.com/index/5597463.html<br>
+<h3>波士顿联储行长称维持利率不变取决于通胀改善</h3>
+http://www.liyikj.com/index/7362439.html<br>
+<h3>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”</h3>
+http://www.xinkaishun.com/index/3214934.html<br>
+<h3>第十一届APEC粮食安全部长级会议在浙江杭州举行</h3>
+http://www.aiyounuo.net/index/7072131.html<br>
+<h3>德国二季度GDP环比增速上调至0.3%</h3>
+http://www.huangpuhui.com.cn/index/0038215.html<br>
+<h3>通胀担忧降温，资金轮动涌入科技股</h3>
+http://www.wuxibaomei.com/index/2452837.html<br>
+<h3>广东拥抱AI 助力流行音乐创作</h3>
+http://lcbajt.com/index/1458515.html<br>
+<h3>美联航宣布史上最大国际扩张：2027年新开10城，纽瓦克担主场</h3>
+http://changyun688.com/index/9699871.html<br>
+<h3>马丁马里埃塔完成对Lhoist北美业务交割，成为美国领先石灰石产品生产商</h3>
+http://www.31260939.com/index/3506560.html<br>
+<h3>湖北形成“海陆空多向联动”的国际物流格局</h3>
+http://rywlnet.com/index/6310283.html<br>
+<h3>中印边界问题特别代表在北京举行会晤</h3>
+http://www.rywlnet.com/index/4069336.html<br>
+<h3>中印边界问题特别代表在北京举行会晤</h3>
+http://pingdu.qdgxdq.com/index/8617265.html<br>
+<h3>美国中情局局长John Ratcliffe据悉突然造访莫斯科</h3>
+http://www.hntggjg.cn/index/6196900.html<br>
+<h3>FDA核准罗氏与礼来pTau217血液检测，同一阈值同时用于纳入和排除淀粉样病理</h3>
+http://1010cq.com/index/6619681.html<br>
+<h3>中印边界问题特别代表在北京举行会晤</h3>
+http://31260939.com/index/7946444.html<br>
+<h3>加拿大报复清单：覆盖逾700种美国商品 关税从15%到50%</h3>
+http://jdks.kleshuo.com/index/0855212.html<br>
+<h3>特朗普称美国正在密切关注伊朗的“镐山”</h3>
+http://www.shlcpump.com/index/7241642.html<br>
+<h3>《富爸爸穷爸爸》作者警告持有这类“虚假资产”的人将会变穷</h3>
+http://www.hntggjg.cn/index/1264607.html<br>
+<h3>2026年度电影总票房突破275亿！《欢迎来龙餐馆》公布全球上映计划</h3>
+http://www.hndczn.com/index/4216226.html<br>
+<h3>沪港数字合作成果丰硕 将深化数据标准对接</h3>
+http://ol.nju-ys.com/index/4107818.html<br>
+<h3>马丁马里埃塔完成对Lhoist北美业务交割，成为美国领先石灰石产品生产商</h3>
+http://www.socomecair.com/index/5472749.html<br>
+<h3>南宁海事局使用重载无人机成功救助3艘遇险船舶</h3>
+http://www.xinkaishun.com/index/8999938.html<br>
+<h3>明起停牌！002274，拟易主</h3>
+http://www.wxruyue.com/index/0464804.html<br>
+<h3>迪克体育二季度业绩低于预期，下调全年指引，盘前大跌</h3>
+http://www.yingjiang-hk.com/index/9847350.html<br>
+<h3>苹果发布升级版Mac mini和Mac Studio 为新款iPhone预热</h3>
+http://www.soutugo.com/index/8687170.html<br>
+<h3>第十一届APEC粮食安全部长级会议在浙江杭州举行</h3>
+http://fbgjc.com/index/4869115.html<br>
+<h3>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”</h3>
+http://www.rongbeish.com/index/0801897.html<br>
+<h3>加拿大宣布对美国商品征收报复性关税</h3>
+http://www.materialhandling.cn/index/5607617.html<br>
+<h3>【活力中国调研行】鲁北小城“智造”全球三成商用健身器材</h3>
+http://shlidiao.com/index/5211098.html<br>
+<h3>美国中情局局长John Ratcliffe据悉突然造访莫斯科</h3>
+http://jlhs.cn/index/5958133.html<br>
+<h3>德国二季度GDP环比增速上调至0.3%</h3>
+http://www.mskeji.com.cn/index/5710671.html<br>
+<h3>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”</h3>
+http://www.seohaosou.cn/index/7219438.html<br>
+<h3>广东拥抱AI 助力流行音乐创作</h3>
+http://www.poprivet.cn/index/8248992.html<br>
+<h3>OpenAI称自研AI芯片测试表现超越英伟达GB300</h3>
+http://huidirobot.com/index/7189609.html<br>
+<h3>沪港数字合作成果丰硕 将深化数据标准对接</h3>
+http://www.collect-as.com/index/0303238.html<br>
+<h3>欧洲债市：多个期限的欧债收益率跌至逾一周低位 受油价下跌影响</h3>
+http://tungsten-molybdenum.net/index/8804547.html<br>
+<h3>拜登任内国家债务增加8万亿美元，位列第三大支出型总统，第一名你或许猜得到</h3>
+http://yyhjzfp.zhonghetc.com/index/3171728.html<br>
+<h3>一名在韩失踪中国公民遇害 嫌疑人已被捕</h3>
+http://www.gdamg.com/index/5421382.html<br>
+<h3>【滔滔两岸潮】从台积电辞职到深圳创业 台湾“羽球少年”大陆圆梦</h3>
+http://www.tungsten-molybdenum.net/index/9467309.html<br>
+<h3>第十一届APEC粮食安全部长级会议在浙江杭州举行</h3>
+http://www.lzjchina.com/index/5654105.html<br>
+<h3>苹果发布升级版Mac mini和Mac Studio 为新款iPhone预热</h3>
+http://wsx.hengyuit.com/index/9347703.html<br>
+<h3>拜登任内国家债务增加8万亿美元，位列第三大支出型总统，第一名你或许猜得到</h3>
+http://wxhaotong.cn/index/6740812.html<br>
+<h3>马斯克称SpaceX轨道数据中心发射时间提前至2027年</h3>
+http://www.en-cd.com/index/2804180.html<br>
+<h3>纪念红军长征胜利90周年 百余名港澳青年于都重走长征路</h3>
+http://collect-as.com/index/8244878.html<br>
+<h3>美国8月消费者信心下降 对商业和就业前景看法恶化</h3>
+http://www.rongbeish.com/index/9599453.html<br>
+<h3>德国二季度GDP环比增速上调至0.3%</h3>
+http://www.pmipneumatic.com/index/5989373.html<br>
+<h3>摩根士丹利：五大云巨头与英伟达等AI相关表外承诺超过3.1万亿美元</h3>
+http://www.yifafs.com/index/3411517.html<br>
+<h3>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”</h3>
+http://tungsten-molybdenum.com.cn/index/2091101.html<br>
+<h3>美国消费者信心降至七个月低点 对营商环境和就业前景看法恶化</h3>
+http://new-arc.net/index/8266294.html<br>
+<h3>邓晓峰，40亿元重仓两大周期股</h3>
+http://luxuryliving.cn/index/1802318.html<br>
+<h3>美国8月消费者信心下降 对商业和就业前景看法恶化</h3>
+http://liyikj.com/index/3013455.html<br>
+<h3>美国7月新屋销售降至六个月低点 抵押贷款利率高企抑制需求</h3>
+http://materialhandling.cn/index/0479428.html<br>
+<h3>百只人工繁育绿海龟在广东惠东放归大海</h3>
+http://www.zyoud.cn/index/2448472.html<br>
+<h3>明起停牌！002274，拟易主</h3>
+http://hrhuizhong.com/index/2800994.html<br>
+<h3>美军机降落莫斯科？克宫回应</h3>
+http://www.haimite.net/index/2178552.html<br>
+<h3>百只人工繁育绿海龟在广东惠东放归大海</h3>
+http://www.sh-lanyuan.com/index/1213104.html<br>
+<h3>俄远东一在建天然气化工项目发生火灾致1人死亡百余人受伤</h3>
+http://tungsten-molybdenum.com.cn/index/3341465.html<br>
+<h3>西藏山南贡嘎县赛马暨文化旅游活动启幕</h3>
+http://www.putube.net/index/1326782.html<br>
+<h3>马丁马里埃塔完成对Lhoist北美业务交割，成为美国领先石灰石产品生产商</h3>
+http://wx.fzbsggljt.com/index/1479733.html<br>
+<h3>【活力中国调研行】鲁北小城“智造”全球三成商用健身器材</h3>
+http://wap.sinosec.com.cn/index/9758237.html<br>
+<h3>苹果发布升级版Mac mini和Mac Studio 为新款iPhone预热</h3>
+http://ops.fzbsggljt.com/index/2807114.html<br>
+<h3>2026年度电影总票房突破275亿！《欢迎来龙餐馆》公布全球上映计划</h3>
+http://www.toimage.com/index/6974723.html<br>
+<h3>FDA核准罗氏与礼来pTau217血液检测，同一阈值同时用于纳入和排除淀粉样病理</h3>
+http://1010cq.com/index/0178614.html<br>
+<h3>明起停牌！002274，拟易主</h3>
+http://sj.sougo.net/index/3425239.html<br>
+<h3>俄远东一在建天然气化工项目发生火灾致1人死亡百余人受伤</h3>
+http://www.kewarm.com.cn/index/9697109.html<br>
+<h3>德国二季度GDP环比增速上调至0.3%</h3>
+http://webtest01.mq163.net/index/6919230.html<br>
+<h3>中印边界问题特别代表在北京举行会晤</h3>
+http://zhiwaijy.com/index/3784722.html<br>
+<h3>欧洲债市：多个期限的欧债收益率跌至逾一周低位 受油价下跌影响</h3>
+http://sraccessfloor.com/index/0540085.html<br>
+<h3>马丁马里埃塔完成对Lhoist北美业务交割，成为美国领先石灰石产品生产商</h3>
+http://jingan.mq163.net/index/4931521.html<br>
+<h3>OpenAI称自研AI芯片测试表现超越英伟达GB300</h3>
+http://hr.ysshj.com.cn/index/7708049.html<br>
+<h3>湖北形成“海陆空多向联动”的国际物流格局</h3>
+http://www.lishangled.com/index/7593372.html<br>
+<h3>欧洲债市：多个期限的欧债收益率跌至逾一周低位 受油价下跌影响</h3>
+http://lubricus-cn.com/index/3009957.html<br>
+<h3>波士顿联储行长称维持利率不变取决于通胀改善</h3>
+http://xzhuasheng.com/index/0156892.html<br>
+<h3>【滔滔两岸潮】从台积电辞职到深圳创业 台湾“羽球少年”大陆圆梦</h3>
+http://www.hao-tong.com.cn/index/5716193.html<br>
+<h3>俄远东一在建天然气化工项目发生火灾致1人死亡百余人受伤</h3>
+http://0-3.vip/index/6773140.html<br>
+<h3>2026年度电影总票房突破275亿！《欢迎来龙餐馆》公布全球上映计划</h3>
+http://haimite.net/index/9155646.html<br>
+<h3>加拿大如何反击，重创美国经济与特朗普？</h3>
+http://www.gmcomp.com/index/9405162.html<br>
+<h3>拜登任内国家债务增加8万亿美元，位列第三大支出型总统，第一名你或许猜得到</h3>
+http://www.tungsten-molybdenum.net/index/5000060.html<br>
+<h3>波士顿联储行长称维持利率不变取决于通胀改善</h3>
+http://kama-smarter.com/index/3741109.html<br>
+<h3>美国消费者信心降至七个月低点 对营商环境和就业前景看法恶化</h3>
+http://xamsjd.com/index/4602548.html<br>
+<h3>中印边界问题特别代表在北京举行会晤</h3>
+http://huangpu.mq163.net/index/4024861.html<br>
+<h3>德国二季度GDP环比增速上调至0.3%</h3>
+http://www.xbrelec.com/index/1599099.html<br>
+<h3>FDA核准罗氏与礼来pTau217血液检测，同一阈值同时用于纳入和排除淀粉样病理</h3>
+http://huangpu.mq163.net/index/5996772.html<br>
+<h3>邓晓峰，40亿元重仓两大周期股</h3>
+http://goldballmachine.com/index/7667424.html<br>
+<h3>迪克体育二季度业绩低于预期，下调全年指引，盘前大跌</h3>
+http://www.zjzjw168.com/index/6459213.html<br>
+<h3>加拿大如何反击，重创美国经济与特朗普？</h3>
+http://www.def-online.com.cn/index/0864842.html<br>
+<h3>西藏山南贡嘎县赛马暨文化旅游活动启幕</h3>
+http://splashgroup.cn/index/1165546.html<br>
+<h3>一名在韩失踪中国公民遇害 嫌疑人已被捕</h3>
+http://www.lpcgxf.com/index/2925980.html<br>
+<h3>卡尼等额反击特朗普 加拿大将对美国家具和钢铝征收50%的关税</h3>
+http://hongkou.mq163.net/index/9642103.html<br>
+<h3>马来西亚热浪来袭 多地发布高温警报</h3>
+http://hongkou.mq163.net/index/1807469.html<br>
+<h3>通胀担忧降温，资金轮动涌入科技股</h3>
+http://ec-h.com.cn/index/6594529.html<br>
+<h3>广东拥抱AI 助力流行音乐创作</h3>
+http://luxuryliving.cn/index/5792732.html<br>
+<h3>美军机降落莫斯科？克宫回应</h3>
+http://gmcomp.com/index/5599911.html<br>
+<h3>马来西亚热浪来袭 多地发布高温警报</h3>
+http://www.shjiyue.com/index/0986649.html<br>
+<h3>俄远东一在建天然气化工项目发生火灾致1人死亡百余人受伤</h3>
+http://www.sinosec.com.cn/index/3811609.html<br>
+<h3>湖北形成“海陆空多向联动”的国际物流格局</h3>
+http://baltec.cn/index/8564375.html<br>
+<h3>第十一届APEC粮食安全部长级会议在浙江杭州举行</h3>
+http://yangpu.mq163.net/index/0245346.html<br>
+<h3>《富爸爸穷爸爸》作者警告持有这类“虚假资产”的人将会变穷</h3>
+http://5pvc.com/index/0936294.html<br>
+<h3>【活力中国调研行】鲁北小城“智造”全球三成商用健身器材</h3>
+http://inkwin.cn/index/2953091.html<br>
+<h3>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”</h3>
+http://www.morxin.com.cn/index/7441120.html<br>
+<h3>美国8月消费者信心下降 对商业和就业前景看法恶化</h3>
+http://www.glycanlink.com/index/5801529.html<br>
+<h3>美军机降落莫斯科？克宫回应</h3>
+http://www.hzcycs.com/index/3703179.html<br>
+<h3>沪港数字合作成果丰硕 将深化数据标准对接</h3>
+http://www.tjanbao.com/index/3479964.html<br>
+<h3>特朗普称美国正在密切关注伊朗的“镐山”</h3>
+http://www.cn.anteky.com/index/8294611.html<br>
+<h3>纪念红军长征胜利90周年 百余名港澳青年于都重走长征路</h3>
+http://150252.com/index/9444974.html<br>
+<h3>摩根士丹利：五大云巨头与英伟达等AI相关表外承诺超过3.1万亿美元</h3>
+http://sync.ytone.com.cn/index/7427680.html<br>
+<h3>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”</h3>
+http://www.shlidiao.com/index/5914348.html<br>
+<h3>美国8月消费者信心下降 对商业和就业前景看法恶化</h3>
+http://www.tungsten-molybdenum.net.cn/index/7929505.html<br>
+<h3>FDA核准罗氏与礼来pTau217血液检测，同一阈值同时用于纳入和排除淀粉样病理</h3>
+http://www.okaway-china.com/index/2045184.html<br>
+<h3>百只人工繁育绿海龟在广东惠东放归大海</h3>
+http://wuxibaomei.com/index/7255331.html<br>
+<h3>明起停牌！002274，拟易主</h3>
+http://kaiyimei.com/index/7854455.html<br>
+<h3>美联航宣布史上最大国际扩张：2027年新开10城，纽瓦克担主场</h3>
+http://www.5656pk.com/index/5338374.html<br>
+<h3>纪念红军长征胜利90周年 百余名港澳青年于都重走长征路</h3>
+http://www.hanveygift.com/index/7752989.html<br>
+<h3>马斯克称SpaceX轨道数据中心发射时间提前至2027年</h3>
+http://www.tjanbao.com/index/0948242.html<br>
+<h3>俄远东一在建天然气化工项目发生火灾致1人死亡百余人受伤</h3>
+http://shanghai.shbjhx.com/index/7714692.html<br>
+<h3>德国二季度GDP环比增速上调至0.3%</h3>
+http://www.cndya.com/index/8483806.html<br>
+<h3>邓晓峰，40亿元重仓两大周期股</h3>
+http://www.sougo.net/index/9874258.html<br>
+<h3>美加口水战升级 特朗普考虑将安大略湖更名为“美利坚湖”</h3>
+http://m.cn-o.com/index/9374218.html<br>
+<h3>FDA核准罗氏与礼来pTau217血液检测，同一阈值同时用于纳入和排除淀粉样病理</h3>
+http://www.gdzshqt.com/index/5390912.html<br>
+<h3>软件板块相对芯片板块走出创纪录强势行情</h3>
+http://www.hollnen.cn/index/6810287.html<br>
+<h3>美联航宣布史上最大国际扩张：2027年新开10城，纽瓦克担主场</h3>
+http://hydraulicpm.com/index/6627263.html<br>
+<h3>【活力中国调研行】鲁北小城“智造”全球三成商用健身器材</h3>
+http://www.young-chic.com/index/5795349.html<br>
+<h3>纪念红军长征胜利90周年 百余名港澳青年于都重走长征路</h3>
+http://px551.cn/index/1563618.html<br>
+<h3>纪念红军长征胜利90周年 百余名港澳青年于都重走长征路</h3>
+http://www.px551.cn/index/5836431.html<br>
+<h3>明起停牌！002274，拟易主</h3>
+http://www.xiulian.com/index/35635981.sHtML<br>
+<h3>美国7月新屋销售降至六个月低点 抵押贷款利率高企抑制需求</h3>
+http://jiarui-container.com/index/6856890.html<br>
+<h3>广东拥抱AI 助力流行音乐创作</h3>
+http://4g.pnetewea.com/index/7496498.html<br>
+<h3>2026年度电影总票房突破275亿！《欢迎来龙餐馆》公布全球上映计划</h3>
+http://sail-dg.com/index/5644412.html<br>
+<h3>加拿大如何反击，重创美国经济与特朗普？</h3>
+http://www.yiyufu.cn/index/2139352.html<br>
+<h3>恒生电子半年报披露蚂蚁基金上半年营收129.8亿元 净利增178%</h3>
+http://www.toyd.cn/index/5680216.html<br>
+<h3>2026年度电影总票房突破275亿！《欢迎来龙餐馆》公布全球上映计划</h3>
+http://51tl.cc/index/3492796.html<br>
+<h3>俄远东一在建天然气化工项目发生火灾致1人死亡百余人受伤</h3>
+http://www.shanghaijiyi.com/index/2561850.html<br>
+<h3>拜登任内国家债务增加8万亿美元，位列第三大支出型总统，第一名你或许猜得到</h3>
+http://www.shchaoh.com/index/7856216.html<br>
+<h3>特朗普称美国正在密切关注伊朗的“镐山”</h3>
+http://www.zrcaipu.com/index/0449848.html<br>
+<h3>苹果发布升级版Mac mini和Mac Studio 为新款iPhone预热</h3>
+http://bjbrcx.com/index/2509766.html<br>
+<h3>马来西亚热浪来袭 多地发布高温警报</h3>
+http://www.cskjs.com/index/7463582.html<br>
